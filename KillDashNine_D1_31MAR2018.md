@@ -2,15 +2,16 @@
 
 
 
+# KILL DASH NINE
 
-KILL DASH NINE
+## By
 
-By
-
-Johnny Batch
+### Johnny Batch
 
 
-Chapter 0
+
+
+## Chapter 0
 
 
 Teddy had taken the same route home for months and had never once been stabbed and left to die. Until now. There was nothing unusual about the night. It was a typically warm, early summer evening in the City of Trees. Teddy always walked back to his car through Freak Alley. His friend Melina had painted her masterpiece on the alley walls and he loved to stare at it as he passed by to the nearby lot where he parked his car. Despite some of the ghoulish apparitions adorning the backs of buildings in the alley, he never felt unsafe during his walk. This was Boise after all, one of the safest capital cities in the country.
@@ -26,7 +27,7 @@ Teddy decided to linger in the alley and check out more of the paintings to see 
 The last thing he heard were wet footsteps running down the alley. His vision faded like one of those old black and white movies that Trip was always making him watch. Teddy slowly lost consciousness and faded out, forever.
 
 
-Chapter 1
+## Chapter 1
 
 
 Detective Bill Plait was well into REM sleep when his cell phone went off on the nightstand beside the bed. First it vibrated on the wooden surface and then it started buzzing and finally, before he could reach for it, the thing started ringing with the sound of an old fashioned rotary phone. His arm slapped at the clock radio for a moment until he realized it was not the alarm but the department phone. Bringing the smart phone to his ear he groggily said, “Plait.”
@@ -159,7 +160,7 @@ She looked back at him and he could almost feel the pain in her tired eyes. He h
 “He was at Mashers, down by the high school.”
 
 
-Chapter Two
+## Chapter Two
 
 
 Mashers was located in an old white clapboard home on a residential street behind Boise High School. The first floor of the house was converted into an arcade using game consoles and large panel displays. They only served energy drinks and French Fries to the mostly teenage clientel. The name didn’t refer to the potato spuds, but to the control mashing that gamers did while playing first person shooters. It was only a happy coincidence that they served piping hot baskets of salty fries to the gamers.
@@ -318,7 +319,7 @@ When everyone had finished and the notebook made back into his hands he thanked 
 Then he left them and headed back out to his car. The neighborhood was walking distance to Boise High School, back a street from the running track. Morning sunlight was coming up over the tree lined streets and in another hour or so the day would be warming up to the mid-nineties.
 
 
-Chapter 3
+## Chapter 3
 
 Dancia collected her purse and headed for the door after the detective had left. Joshua walked outside with her as she slid onto her coral green Vespa scooter.
 
@@ -443,7 +444,7 @@ Dancia downed her water and looked back at Melina on the love seat. She was hunc
 Dancia had been best friends with Melina since grade school, but she and Teddy had been friends since pre-school. A song started playing in her head. It was Tachycardia by Conor Oberst, one of Teddy’s favorite singers. She pulled out her phone, called up Spotify and turned on the song. She sat down with Melina and they two of them listened to the melancholy song about death and lost love.
 
 
-Chapter 4
+## Chapter 4
 
 Nate lounged on the big leather chair in the front room of Mashers reading a well-used green and yellow paperback Steig Larsson novel. He was blissfully unaware of the button mashing, cursing and laughing coming from the gamer cubes. There were five cubes occupied with teenage males all playing different games while several girls worked on homework assignments spread out over the big round table in the middle of the room. Not many girls were serious gamers but they didn’t seem to mind the boys who were, especially if they were cute.
 
@@ -631,7 +632,7 @@ Joshua laughed. “Actually, she’s pretty hot. Trip’s already been after her
 Dancia scraped around the bowl with her spoon, finishing every last curd. She handed him her dirty bowl. “I’ll have to meet her. I can’t have you nerds drooling over anyone but me in this clan.” She smiled back at him as he took the bowl from her.
 
 
-Chapter Five
+## Chapter Five
 
 Game day.
 
@@ -819,7 +820,7 @@ Charlie Squad was Steve – SUMAT, Pete was Dead Vette and Chris’s name was ta
 Their team name was Niner. Not that creative, but then they were mostly just friends who liked to game together. Not all of them were tech geeks and they never played in tournaments for money. It was just a fun hobby to most of them with the possible exception of Steve who seemed to take each loss more personally than anyone else. That was just Steve being Steve.
 
 
-Chapter Six
+## Chapter Six
 
 The players materialized in a lunar gray trench somewhere on Betwi-One, the first moon where they battle the enemy bug soldiers known as the Acheron Army. The players all belonged to the human forces in the game known as the Elysian Army. They wore gray and light blue colored armored battle suit.
 
@@ -1050,7 +1051,7 @@ Dancia stared appreciably at her for a moment. “I’ve never met a female codi
 Jo replied with zero irony, “Neither have I.”
 
 
-Chapter 7
+## Chapter 7
 
 
 Joshua tossed and turned in his bed his skin moist with perspiration. Subconsciously he kicked off his sheets as he waked with a start from the horrible nightmare. The sky above the city was an eerie blue-green color. It was never completely dark in his room and he was okay with that. A feature of his apartment in his eyes. Even his computer monitor was on with a screen saver spinning lines of code inside and out in colorful fonts.
@@ -1198,7 +1199,7 @@ Dancia had an RFID key that let her into Joshua’s apartment. She entered unann
 Joshua put an arm around her and pulled her to his side. She was wearing a white and pink Hello Kitty sleep shirt with fuzzy pink slippers. Not exactly dressed for public, but then she had half of his closet filled with her own attire so probably figured it was pointless to get dressed.
 
 
-Chapter Seven
+## Chapter Eight
 
 
 Begin.
