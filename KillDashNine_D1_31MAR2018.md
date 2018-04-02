@@ -1196,10 +1196,72 @@ Dancia had an RFID key that let her into Joshua’s apartment. She entered unann
 
 “What’s going on? Where’s Plait?”
 
-Joshua put an arm around her and pulled her to his side. She was wearing a white and pink Hello Kitty sleep shirt with fuzzy pink slippers. Not exactly dressed for public, but then she had half of his closet filled with her own attire so probably figured it was pointless to get dressed.
+Joshua put an arm around her and pulled her to his side. She was wearing a white and pink Hello Kitty sleep shirt with fuzzy pink slippers. Not exactly dressed for public, but then she had half of his closet filled with her own attire so probably figured it was pointless to get dressed. Josha turned to look up at her. "Do you know Jo's last name?"
+
+Dancia read his screen and could see that he was doing searches for her all over the dark web. She looked down at him, the pale safrin light of the montior made her fair skin glow. "No."
+
+"There's been another murder."
+
+Dancia stared down at him, her eyes dialated. "Who?"
+
+"Van. Stabbed like Teddy only he was outside his home."
+
+Dancia shed a tear as she put her arms around Joshua. He held onto her as she cried. They had known Van for over four years. He had just wandered into Bashers one afternoon and started playing games with the teenagers. Life as a patent attorney was boring and he loved to escape reality in games.
+
+Dancia rested her head against Joshua's and started reading his browser tabs. "Do you think Jo is the killer?"
+
+Joshua didn't say anything right away and she pulled away enough to look down at him.
+
+"She didn't show up until we lost Teddy and now Van. I mean, we don't really know anything about her."
+
+Dancia stood up and moved towards the full length window. She looked down at the empty street below and leaned against the glass, completely at ease with heights.
+
+"I don't think she's a killer. I spent some time with her yesterday and I find it hard to believe she would kill anyone. Besides, she's come kind of genius or something. She's created her own VR game that allows you to interact with the real world and the game world at the same time. It's pretty freaking amazing."
+
+"Some psychotic are pretty high functioning individuals."
+
+Dancia shook her head. "Whatever. That girl's got mad coding skilz, but she's not a psycho."
+
+Joshua shrugged. "Someone in our group is a killer. If we don't figure out who and soon, one of us could be next."
 
 
 ## Chapter Eight
 
 
-Begin.
+Joshua phoned in sick to work that morning. He followed Dancia back to her place so she could get to work on time and then he took a drive uptown to find where Jo was staying. He wanted to talk with her and see for himself what she was coding and maybe get to know her a bit. A part of him was weary of seeing her, but not because he thought she was dangerous. He was more afraid of being alone with her in general. She was just about the hottest woman that had ever stepped bare foot into Mashers. He hoped he would be strong willed enough to be able to ward off an advance from her. Maybe he was too full of himself, but he had noticed how interested she had been, even knowing Dancia and him were an item. Add to that the possibility that she could go all Glenn Close on him and he really didn't want to see her alone at all.
+
+The house was just as Dancia had described it to Detective Plait. Joshua sat in his Porsche 356 for a few minutes parked across the street from the house. It looked pretty normal, if not a bit high rent for the area. He chatted up Trip on his phone.
+
+<Joshua> Hey, I'm going to talk to Jo for a while. If I don't come back, come and check on me. Here's my location.
+
+He pressed the location button that pinned him to a map and pressed send. After a few moments Trip responded.
+
+<Trip> You dog you. Don't do anything I would do.
+
+Joshua smiled and pocketed his phone. He got out of the car and scanned the street for any signs of life. It was dead this early in the morning. Dressed in a t-shirt and shorts with loafers he cruised across the empty, shaded street and went through the iron gate. As he got closer to the door he could hear the heavy base thumping of Daft Punk's _Get Lucky_.
+
+The front door was open and he could see into the front living room as he peered through the screen door. A bare leg spun around and then out of view. A moment later Jo danced into his view, naked and facing away from him. He backed away from the door and took a step back. _Damn, this is not good._
+
+He turned around and started to leave but stopped when he heard her voice.
+
+"Hey, man. Door's open."
+
+He turned back around hoping she had covered up but she stood there, gyrating to the beat, completely naked. Joshua smiled weakly and entered. Jo's long board was up against the wall just inside. He moved cautiously into the living room as she had faced the stereo cabinet to turn down the music.
+
+"I'm sorry to drop by unannounced. I can come back another time," he said, turning again to leave. She put a hand on his shoulder and turned him around to face her. Her skin glistened with sweat as she grabbed his hand and lead him deeper into the house.
+
+"Come on, I'm going for a dip in the pool. You can join me."
+
+Joshua gulped. He was living in a damn Playboy magazine hot letter's section! She moved so divinely and her body was tight and just muscular enough to let anyone watching know she was an athlete.
+
+"I talked with Dancia yesterday, did she tell you?"
+
+"Huh? Oh, yea. She mentioned something about a game you were working on."
+
+Jo turned to look back at him and smiled suggestively. "I can show that later after my swim."
+
+They walked out back to the pool and Jo took a few steps towards the pool and then turned around. "You can join me if you like."
+
+"Ah, no thanks. I better stay over here, on land."
+
+Her body cleaved the water like a knife as she dove in and swam under water half way to the other end. Joshua looked around and noticed the yard was surrounded by a tall privacy fence and was well stocked with various sized plants and trees. It was a pretty secluded yard but he still felt like he was being watched. He sat down on a patio chair and tried not to gawk at her as she swam back across the water in a perfect front crawl.
