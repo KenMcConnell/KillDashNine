@@ -6,7 +6,7 @@
 
 ## By
 
-### Johnny Batch
+## Johnny Batch
 
 
 
@@ -14,7 +14,6 @@
 ## Chapter 0
 
 
-Teddy had taken the same route home for months and had never once been stabbed and left to die. Until now. There was nothing unusual about the night. It was a typically warm, early summer evening in the City of Trees. Teddy always walked back to his car through Freak Alley. His friend Melina had painted her masterpiece on the alley walls and he loved to stare at it as he passed by to the nearby lot where he parked his car. Despite some of the ghoulish apparitions adorning the backs of buildings in the alley, he never felt unsafe during his walk. This was Boise after all, one of the safest capital cities in the country.
 
 But this night was different than all the others. For one thing, he was pretty nearly drunk which was unusual for him because he rarely drank on gaming nights. Pete had made a new lager and Teddy had tilted back one too many of them as the night wore on. It had affected his game play towards the end, resulting in him getting killed by a horde of raging, four armed bugs. Those fucking bugs swarmed like ants and he didn’t have a chance after falling down. None of his fellow clan members could reach him before he was overwhelmed.
 
@@ -32,7 +31,7 @@ The last thing he heard were wet footsteps running down the alley. His vision fa
 
 Detective Bill Plait was well into REM sleep when his cell phone went off on the nightstand beside the bed. First it vibrated on the wooden surface and then it started buzzing and finally, before he could reach for it, the thing started ringing with the sound of an old fashioned rotary phone. His arm slapped at the clock radio for a moment until he realized it was not the alarm but the department phone. Bringing the smart phone to his ear he groggily said, “Plait.”
 
-The dispatcher ran through a list of department jargon that ended with homicide and an address. Plait sat up and looked back over at the sleeping form of his wife. Francine didn’t appear to be awake. She was a pretty deep sleeper and rarely stirred when his phone went off at all hours of the night. He got up and padded into the bathroom, closing the door before clicking on the light. Asking for the address again, he acknowledged the call and hung up. It was two AM in the morning on a Saturday. Plait releaved himself and then brushed his hair and teeth before throwing on Friday’s pants and shirt. He didn’t want to wake his wife by opening drawers and digging in his closet to find clean clothes.
+The dispatcher ran through a list of department jargon that ended with homicide and an address. Plait sat up and looked back over at the sleeping form of his wife. Francine didn’t appear to be awake. She was a pretty deep sleeper and rarely stirred when his phone went off at all hours of the night. He got up and padded into the bathroom, closing the door before clicking on the light. Asking for the address again, he acknowledged the call and hung up. It was two AM in the morning on a Saturday. Plait relieved himself and then brushed his hair and teeth before throwing on Friday’s pants and shirt. He didn’t want to wake his wife by opening drawers and digging in his closet to find clean clothes.
 
 After grabbing his badge and pistol he made his way through a dark home to the front door and unlocked it to leave. What he wanted most was a hot coffee, but at this time of night, Starbucks wasn’t serving. The nerve of them.
 
@@ -54,7 +53,7 @@ The Photographer started putting his gear into a shoulder bag. “I got what I n
 
 Plait nodded and moved in to remove the victim’s wallet. It was a leather one not unlike his own. Driver’s license prominently displayed in the plastic window, about sixteen dollars in bills and a few miscellaneous receipts folded in with the cash. The usual assortment of credit cards and insurance cards. He found a set of keys in the kid’s front right jeans pocket.
 
-His name was Theodore J. Buttle, born in 1995 and lived on the East side of town. Plait handed the wallet to another officer who held out an evidence bag. Then he went about examining what the kid wore. Typical for men his age he wore an old concert t-shirt and faded bluejeans with black Converse All Starts. He was not a small man. Plait guesstimated he was close to three hundred pounds and probably stood over six foot five. Bearded with dark brown hair.
+His name was Theodore J. Buttle, born in 1995 and lived on the East side of town. Plait handed the wallet to another officer who held out an evidence bag. Then he went about examining what the kid wore. Typical for men his age he wore an old concert t-shirt and faded blue jeans with black Converse All Starts. He was not a small man. Plait guesstimated he was close to three hundred pounds and probably stood over six foot five. Bearded with dark brown hair.
 
 Plait took out his mini flashlight and shined it on the dead man’s face. His eyes were still open and looked to be dark brown in color. What a waste. He looked like he had probably been a nice kid. Nothing about his dress set off any warning signs for gangs, nothing on his body pointed to a harsh life of drug use. The fact that he still had his wallet indicated it could have been a random murder or perhaps he just witnessed something he shouldn’t have. Been in the wrong place at the wrong time.
 
@@ -86,7 +85,7 @@ She nodded while putting the lid on her thermos.
 
 Plait worked on his coffee while examining the kid’s wallet closer. He found the insurance card and had Sergeant McReed search area lots for a 1992 gray Ford Taurus. She was relieved to have something else to do. As her squad car pulled away, Simms’ car took her place in the alley.
 
-Simms was a thin man with a bushy, graying mustache on his gaunt face. He went through his routine of ensuring the kid was dead and started counting stab wounds.
+Simms was a thin man with a bushy, graying moustache on his gaunt face. He went through his routine of ensuring the kid was dead and started counting stab wounds.
 
 “Stabbed nine times. That’s pretty particular.”
 
@@ -1058,7 +1057,7 @@ Van's Prius pulled silently into his driveway and shut down. He stepped out and 
 
 He twisted on the tiny pocket light from his key chain and walked across the dimly lit jogging trail. The sound seemed to get louder as he approached and he started thinking maybe he shouldn't try and break it up. But he had to try, he was too much of an animal lover to let nature run it's course.
 
-The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. They stopped suddenly and then Van heard a song drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and base strums as it got louder - _Devil In Disguise_.
+The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. They stopped suddenly and then Van heard a song drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and base strums as it got louder - _Devil In Disguise. 
 
 Van stopped and listened as the music got louder. He thought he heard footsteps approaching. Pushing his glasses onto his nose he turned around squinting to see in the dark. That's when the knife appeared, a glistening silver streak by the blue tinted glow of his flashlight. He felt the blade cut into his neck and the hot blood flow down onto his white dress shirt. Thoughts about how to remove the stains mixed with fear and then dread as he fell to the damp grass clutching his throat. The light and his keys hit the pavement with a clatter.
 
