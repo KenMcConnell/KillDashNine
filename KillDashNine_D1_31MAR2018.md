@@ -1054,6 +1054,21 @@ Jo replied with zero irony, “Neither have I.”
 ## Chapter 7
 
 
+Van's Prius pulled silently into his driveway and shut down. He stepped out and looked around the front yard, lit by a single nearby street light and a few LED house lights on the front porch and garage. Something that sounded like a vicious cat fight was going on in the thicket across the street. He lived in a fairly exclusive neighborhood down by the Boise river and there were frequently wild animals passing through along the river just on the other side of the Green Belt public sidewalk.
+
+He twisted on the tiny pocket light from his key chain and walked across the dimly lit jogging trail. The sound seemed to get louder as he approached and he started thinking maybe he shouldn't try and break it up. But he had to try, he was too much of an animal lover to let nature run it's course.
+
+The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. They stopped suddenly and then Van heard a song drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and base strums as it got louder - _Devil In Disguise_.
+
+Van stopped and listened as the music got louder. He thought he heard footsteps approaching. Pushing his glasses onto his nose he turned around squinting to see in the dark. That's when the knife appeared, a glistening silver streak by the blue tinted glow of his flashlight. He felt the blade cut into his neck and the hot blood flow down onto his white dress shirt. Thoughts about how to remove the stains mixed with fear and then dread as he fell to the damp grass clutching his throat. The light and his keys hit the pavement with a clatter.
+
+A figure lingered over him but all he could see was the kitchen knife stabbing him over and over until his life faded away into the dark night.
+
+<Plait on scene>
+
+
+## Chapter 8
+
 Joshua tossed and turned in his bed his skin moist with perspiration. Subconsciously he kicked off his sheets as he waked with a start from the horrible nightmare. The sky above the city was an eerie blue-green color. It was never completely dark in his room and he was okay with that. A feature of his apartment in his eyes. Even his computer monitor was on with a screen saver spinning lines of code inside and out in colorful fonts.
 His nightmares were never very far away and often left him awake at odd hours of the night. Once awake, he usually couldn’t get back to sleep and just sat at his computer reading Reddit or Twitter.
 
@@ -1218,17 +1233,19 @@ Dancia stood up and moved towards the full length window. She looked down at the
 
 "I don't think she's a killer. I spent some time with her yesterday and I find it hard to believe she would kill anyone. Besides, she's come kind of genius or something. She's created her own VR game that allows you to interact with the real world and the game world at the same time. It's pretty freaking amazing."
 
-"Some psychotic are pretty high functioning individuals."
+"Some psychotics are pretty high functioning individuals."
 
 Dancia shook her head. "Whatever. That girl's got mad coding skilz, but she's not a psycho."
 
 Joshua shrugged. "Someone in our group is a killer. If we don't figure out who and soon, one of us could be next."
 
 
-## Chapter Eight
+## Chapter 9
+
+<Scene with Plait talking to Jo>
 
 
-Joshua phoned in sick to work that morning. He followed Dancia back to her place so she could get to work on time and then he took a drive uptown to find where Jo was staying. He wanted to talk with her and see for himself what she was coding and maybe get to know her a bit. A part of him was weary of seeing her, but not because he thought she was dangerous. He was more afraid of being alone with her in general. She was just about the hottest woman that had ever stepped bare foot into Mashers. He hoped he would be strong willed enough to be able to ward off an advance from her. Maybe he was too full of himself, but he had noticed how interested she had been, even knowing Dancia and him were an item. Add to that the possibility that she could go all Glenn Close on him and he really didn't want to see her alone at all.
+Joshua sent an email to his office that he was taking some time off due to a the death of an acquaintance. He followed Dancia back to her place so she could get to work on time and then he took a drive uptown to find where Jo was staying. He wanted to talk with her and see for himself what she was coding and maybe get to know her a bit. A part of him was weary of seeing her, but not because he thought she was dangerous. He was more afraid of being alone with her in general. She was just about the hottest woman that had ever stepped bare foot into Mashers. He hoped he would be strong willed enough to be able to ward off an advance from her. Maybe he was too full of himself, but he had noticed how interested she had been, even knowing Dancia and him were an item. Add to that the possibility that she could go all Glenn Close on him and he really didn't want to see her alone at all.
 
 The house was just as Dancia had described it to Detective Plait. Joshua sat in his Porsche 356 for a few minutes parked across the street from the house. It looked pretty normal, if not a bit high rent for the area. He chatted up Trip on his phone.
 
@@ -1258,10 +1275,38 @@ Joshua gulped. He was living in a damn Playboy magazine hot letter's section! Sh
 
 "Huh? Oh, yea. She mentioned something about a game you were working on."
 
-Jo turned to look back at him and smiled suggestively. "I can show that later after my swim."
+Jo turned to look back at him and smiled suggestively. "I can show you that later after my swim."
 
 They walked out back to the pool and Jo took a few steps towards the pool and then turned around. "You can join me if you like."
 
 "Ah, no thanks. I better stay over here, on land."
 
 Her body cleaved the water like a knife as she dove in and swam under water half way to the other end. Joshua looked around and noticed the yard was surrounded by a tall privacy fence and was well stocked with various sized plants and trees. It was a pretty secluded yard but he still felt like he was being watched. He sat down on a patio chair and tried not to gawk at her as she swam back across the water in a perfect front crawl.
+
+She swam about five laps back and forth and then stopped at the edge facing him and hung her arms over the edge of the pool to steady herself.
+
+"Why did you come here?"
+
+Joshua was starting to wonder that himself. He certainly didn't come expecting to watch her strut around naked.
+
+"Dancia said you were working on some kind of VR game that really impressed her. I wanted to see if for myself. I tried to contact you online but we didn't have your email or phone number."
+
+"Some detective sure as hell found me this morning. Apparently one of your gamers was killed last night? I think he thought I was somehow involved because I played that game with you guys yesterday."You
+
+Joshua stared back at her for a moment. She didn't exactly sound like a stone hardened killer, more like she had no idea why Plait would have shown up at her door. He wondered if she were naked then too? He caught himself and redirected his thoughts. "The reason we had an opening on the team was because another member was killed."
+
+Jo's face lightened as a cloud passed and the oppressive heat of the sun fell across the backyard. "So you guys thought I was the one who killed him?"
+
+"I could see where the police might think that. I mean we all hardly know you and after Van was killed,"
+
+Jo shook her head and her wet hair slapped across her bare shoulders. "I sure picked the wrong damn arcade to drop in on."
+
+"Look, we're all a little rattled right now and we don't understand why two of our members have been brutally killed. It might be best if you stayed away for a while, at least until the police can nab the killer."
+
+Jo looked disappointed as she tilted her head back to wet her hair in the pool. Joshua felt bad for coming again and stood up to leave.
+
+"Look, I'm sorry I came over unannounced. I'll check out your game another time," he said, heading back inside.
+
+Jo let him go and didn't get out of the pool to follow him.
+
+// ----------------------- //
