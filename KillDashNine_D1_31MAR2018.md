@@ -14,7 +14,6 @@
 ## Chapter 0
 
 
-
 But this night was different than all the others. For one thing, he was pretty nearly drunk which was unusual for him because he rarely drank on gaming nights. Pete had made a new lager and Teddy had tilted back one too many of them as the night wore on. It had affected his game play towards the end, resulting in him getting killed by a horde of raging, four armed bugs. Those fucking bugs swarmed like ants and he didn’t have a chance after falling down. None of his fellow clan members could reach him before he was overwhelmed.
 
 Dizzy from the beer and feeling jaded by the game, he left Mashers and headed out into the night for his usual homeward trek through the heart of the city. Teddy was a big man and he was no where near being too drunk to drive, at least that what he convinced himself. The others knew when he’d had too much to drink and they didn’t even try to stop him from leaving.
@@ -85,7 +84,7 @@ She nodded while putting the lid on her thermos.
 
 Plait worked on his coffee while examining the kid’s wallet closer. He found the insurance card and had Sergeant McReed search area lots for a 1992 gray Ford Taurus. She was relieved to have something else to do. As her squad car pulled away, Simms’ car took her place in the alley.
 
-Simms was a thin man with a bushy, graying moustache on his gaunt face. He went through his routine of ensuring the kid was dead and started counting stab wounds.
+Simms was a thin man with a bushy, graying mustache on his gaunt face. He went through his routine of ensuring the kid was dead and started counting stab wounds.
 
 “Stabbed nine times. That’s pretty particular.”
 
@@ -1057,13 +1056,13 @@ Van's Prius pulled silently into his driveway and shut down. He stepped out and 
 
 He twisted on the tiny pocket light from his key chain and walked across the dimly lit jogging trail. The sound seemed to get louder as he approached and he started thinking maybe he shouldn't try and break it up. But he had to try, he was too much of an animal lover to let nature run it's course.
 
-The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. They stopped suddenly and then Van heard a song drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and base strums as it got louder - _Devil In Disguise. 
+The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. They stopped suddenly and then Van heard a song drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and base strums as it got louder - _Devil In Disguise.
 
 Van stopped and listened as the music got louder. He thought he heard footsteps approaching. Pushing his glasses onto his nose he turned around squinting to see in the dark. That's when the knife appeared, a glistening silver streak by the blue tinted glow of his flashlight. He felt the blade cut into his neck and the hot blood flow down onto his white dress shirt. Thoughts about how to remove the stains mixed with fear and then dread as he fell to the damp grass clutching his throat. The light and his keys hit the pavement with a clatter.
 
 A figure lingered over him but all he could see was the kitchen knife stabbing him over and over until his life faded away into the dark night.
 
-<Plait on scene>
+<Plait on scene of the murder> 
 
 
 ## Chapter 8
