@@ -1052,22 +1052,47 @@ Jo replied with zero irony, “Neither have I.”
 ## Chapter 7
 
 
-Van's Prius pulled silently into his driveway and shut down. He stepped out and looked around the front yard, lit by a single nearby street light and a few LED house lights on the front porch and garage. Something that sounded like a vicious cat fight was going on in the thicket across the street. He lived in a fairly exclusive neighborhood down by the Boise river and there were frequently wild animals passing through along the river just on the other side of the Green Belt public sidewalk.
+Van's Prius pulled silently into his driveway and shut down. He got slowly got out and shuffled to his front door. He was still pretty bummed about losing the game and the beers he had consumed at the Ram had left him a little light headed. He unlocked his front door to go inside. An unusual, rustling in the trees off to his left made him look that way. But he didn't see anything odd and quickly went inside and locked the door. Walking through his condo he set his briefcase down on the table and stood looking out the back sliding glass doors that offered a view of the slow moving Boise river. He waited patiently for a riverside unit and now absolutely loved living literally on the Green Belt trail, riverside. If he opened his windows at night, he could even hear the river when it was fast moving in the Spring.
+
+Something that sounded like a vicious cat fight was going on in the thicket across the bike and joging trail.  There were frequently wild animals passing through along the river on the public sidewalk. He wondered if it were just domestic cats tangling. He undid the block of wood that blocked his door from sliding, unlocked it, slid aside the glass and screen doors and stepped out onto his wooden porch. Peering into the dim moonlight, he couldn't see anything and the noise he made coming outside was not enough to stop the fight.
 
 He twisted on the tiny pocket light from his key chain and walked across the dimly lit jogging trail. The sound seemed to get louder as he approached and he started thinking maybe he shouldn't try and break it up. But he had to try, he was too much of an animal lover to let nature run it's course.
 
-The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. They stopped suddenly and then Van heard a song drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and base strums as it got louder - _Devil In Disguise.
+The thickets rattled back and forth as the cats traded blows with their claws and screamed like banshees. The fight stopped suddenly and then Van heard music drifting down the Green Belt as if from someone's phone speaker. It was an old Elvis song, he recognized the drum beat and bass strums as it got louder - _Devil In Disguise_.
 
-Van stopped and listened as the music got louder. He thought he heard footsteps approaching. Pushing his glasses onto his nose he turned around squinting to see in the dark. That's when the knife appeared, a glistening silver streak by the blue tinted glow of his flashlight. He felt the blade cut into his neck and the hot blood flow down onto his white dress shirt. Thoughts about how to remove the stains mixed with fear and then dread as he fell to the damp grass clutching his throat. The light and his keys hit the pavement with a clatter.
+Van stopped and listened as the music got louder. He thought he heard footsteps approaching. Pushing his glasses onto his nose he turned around squinting to see up the dark trail. That's when the knife appeared, a glistening silver streak by the blue tinted glow of his flashlight. He felt the blade cut into his neck and the hot blood flow down onto his white dress shirt. Thoughts about how to remove the stains mixed with fear and then dread as he fell to the damp grass clutching his throat. The light and his keys hit the pavement with a clatter.
 
 A figure lingered over him but all he could see was the kitchen knife stabbing him over and over until his life faded away into the dark night.
 
-<Plait on scene of the murder> 
+// ----------------------- //
+
+The black patrol car eased to a stop at the end of the drive like a prowling panther. Two Boise PD officers got out and activated their Mag flashlights. There didn't seem to be any signs of foul play from the front of the condo. A thin man dressed in jogging shorts and a sweat stained tank top came through the weeds in the direction of the Green Belt beside the condominium. His hands were up and he looked peeked.
+
+"Over here, officers. I'm the one who called."
+
+Sergeant McReed shined her light over the man and then behind, where he had come. She nodded to her partner, a young, wide eyed kid named Givens. It was his first week on the night shift and only something like his first month in uniform. McReed followed the jogger to the pedestrian trail popular with fitness minded civilians. 
+
+"I was just on my normal nightly jog and I damn near tripped on him," the man said, pointing to the body on the ground near the treeline on the river side of the trail. 
+
+"Givens, take the gentleman's statement over there. I'll handle this."
+
+Givens looked over at the body and swallowed hard. He took out his notebook and guided the jogger over under a light nearby. As he was about to ask his first question he noticed the back sliding door was open in the last condo of the street. "Hey, Sarge. Back door is open over there. Could be where the victim lived."
+
+She waved her acknowledgement and keyed her radio to report the death. The body was on it's back and covered with blood. Keys and a still burning flashlight were on the pavement nearby. She kept her distance as she spoke on the radio. Crime scenes needed to be blocked off, not messed with. She took out a roll of yellow tape to mark off the trail to keep other people from running through the scene. _Who the hell would be jogging after midnight on a Sunday_, she thought. Obviously at least one fitness nut.
+
+// ----------------------- //
+
+Detective Plait arrived on the scene about ten minutes later. By that time another patrol car with flahsing lights was parked in the dead end and the place was crawling with crime scene investigators. Plait made his way to the Green Belt and was met by Sergeant McReed. "Good morning, Detecive. Deja-view, eh?"
+
+Plait nodded politely but didn't say anything, moving past her to the body, now covered with a tarp. The Medical Examiner was on his way to the scene but Plait had to see the wounds for himself. He pulled up the tarp and shined his pocket light on the victim. He was a young professional looked to be in his mid to late twenties with his throat slit open and mutilple stab wounds in his upper body. Just like that kid on Friday night in Freak Alley. 
+
+Plait checkd the man's back pockets and found a wallet. He pulled it out and flipped it open to the driver's license. Van Ledderman, address the same as the end condo unit. Plait took out his notepad and checked the list of names from the gamers at Mashers. Yup, he was one of them. _Shit, we got a serial_.
 
 
 ## Chapter 8
 
 Joshua tossed and turned in his bed his skin moist with perspiration. Subconsciously he kicked off his sheets as he waked with a start from the horrible nightmare. The sky above the city was an eerie blue-green color. It was never completely dark in his room and he was okay with that. A feature of his apartment in his eyes. Even his computer monitor was on with a screen saver spinning lines of code inside and out in colorful fonts.
+
 His nightmares were never very far away and often left him awake at odd hours of the night. Once awake, he usually couldn’t get back to sleep and just sat at his computer reading Reddit or Twitter.
 
 He hadn’t gotten out of bed yet before the front door buzzer went off. Despite being awake, it still startled him. The only one who came to his apartment at odd hours of the night was Dancia, but that was back when she pulled night shifts. She had a regular day job now and rarely came over unannounced.
