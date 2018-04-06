@@ -4,9 +4,7 @@
 
 # KILL DASH NINE
 
-## By
-
-## Johnny Batch
+## By Johnny Batch
 
 
 
@@ -158,7 +156,7 @@ She looked back at him and he could almost feel the pain in her tired eyes. He h
 “He was at Mashers, down by the high school.”
 
 
-## Chapter Two
+## Chapter 2
 
 
 Mashers was located in an old white clapboard home on a residential street behind Boise High School. The first floor of the house was converted into an arcade using game consoles and large panel displays. They only served energy drinks and French Fries to the mostly teenage clientel. The name didn’t refer to the potato spuds, but to the control mashing that gamers did while playing first person shooters. It was only a happy coincidence that they served piping hot baskets of salty fries to the gamers.
@@ -543,7 +541,7 @@ Trip laughed. “I can order a pizza or something.”
 
 Jo smiled playfully. “Pizza would be awesome.”
 
-Then she turned back to the game and all but ignored him as she started fraging four armed bug soldiers. Trip pulled out his iPhone and called the local pizzeria. The night was suddenly looking very interesting.
+Then she turned back to the game and all but ignored him as she started fragging four armed bug soldiers. Trip pulled out his iPhone and called the local pizzeria. The night was suddenly looking very interesting.
 
 // ----------------------- //
 
@@ -630,7 +628,7 @@ Joshua laughed. “Actually, she’s pretty hot. Trip’s already been after her
 Dancia scraped around the bowl with her spoon, finishing every last curd. She handed him her dirty bowl. “I’ll have to meet her. I can’t have you nerds drooling over anyone but me in this clan.” She smiled back at him as he took the bowl from her.
 
 
-## Chapter Five
+## Chapter 5
 
 Game day.
 
@@ -640,7 +638,7 @@ Dancia pushed the door bell and waited. She held a homemade salad in a plastic b
 
 Nate opened the door and through out his arms to hug Danica. She obliged him and let herself in. Joshua held out his arm for a hug and Nate just winked at him and left him hanging. Joshua shrugged and shut the door behind him. Inside, Depeche Mode was pumping too loud to hear anyone talking unless you were inches from their faces. Dancia came into the kitchen area and put her salad in the fridge. Pete came into the narrow area and frowned at her. This caused Dancia to wrap her arms around his neck and hug him. “How’s Melina doing?” Pete asked. Dancia let go of him and frowned out of the side of her mouth. “Not so good.”
 
-Pete tried to cheer her up by pretending he was playing the song with an air guitar. Dancia patted him on the shoulder and moved to the round table. Laptops were already plugged in to a power strip strewn out in the center of the table. She looked around for Steve and didn’t see him. “Where’s Sumat?” she asked with a clearly snobby tone.
+Pete tried to cheer her up by pretending he was playing the song with an air guitar. Dancia patted him on the shoulder and moved to the round table. Laptops were already plugged in to a power strip strewn out in the center of the table. She looked around for Steve and didn’t see him. “Where’s SUMAT?” she asked with a clearly snobby tone.
 
 Nate came back through the main room, gliding to the music. “He’s in the can, man.”
 
@@ -739,7 +737,7 @@ Jo looked at Dancia who stood up to shake her hand next.
 
 Jo tilted her head in surprise, not entirely sure Dancia was being straight with her.
 
-“Oh, I’m just kidding. He’s not allowed to pack at games anymore. Right, Sumat?”
+“Oh, I’m just kidding. He’s not allowed to pack at games anymore. Right, SUMAT?”
 
 Steve had sat back down with his back to the table. He flipped her a bird.
 “So, Joshua says you’re a game designer,” Dancia offered.
@@ -798,7 +796,7 @@ The team was divided into three squads of three for a total of nine players. Alp
 
 “I say she can play in Ruxpin’s place. He mostly sucked so that team needs more help,” Steve offered. He had turned around to face the table to eat his all meat pizza.
 
-Jo smiled upon hearing Teddy’s gamer name for the first time. Teddy Ruxpin was a well known animatronic toy bear that read kid’s books. It was also creepy as hell for some kids and even some adults.
+Jo smiled upon hearing Teddy’s gamer name for the first time. Teddy Ruxpin was a well known animatronic toy bear that read kid’s books. It was also creepy as hell for kids and even some adults.
 
 “I’m cool with anywhere you put me, guys,” Jo said.
 
@@ -818,7 +816,7 @@ Charlie Squad was Steve – SUMAT, Pete was Dead Vette and Chris’s name was ta
 Their team name was Niner. Not that creative, but then they were mostly just friends who liked to game together. Not all of them were tech geeks and they never played in tournaments for money. It was just a fun hobby to most of them with the possible exception of Steve who seemed to take each loss more personally than anyone else. That was just Steve being Steve.
 
 
-## Chapter Six
+## Chapter 6
 
 The players materialized in a lunar gray trench somewhere on Betwi-One, the first moon where they battle the enemy bug soldiers known as the Acheron Army. The players all belonged to the human forces in the game known as the Elysian Army. They wore gray and light blue colored armored battle suit.
 
@@ -848,7 +846,7 @@ Steve ripped off his headset and turned to look at Jo’s screen as Nate’s tea
 
 Nate laughed maniacally as his team rounded a corner into a larger area, filled to the brim with bug soldiers. Jo screamed, “Leeeeeroy, Jenkins!” as her character shot a steady stream into the cavern. They all opened up and managed to kill half a dozen bugs before they were all killed off, ending the round for everyone expect for Van.
 
-His character had fallen forward and had made it’s way under the dead carcases of several bugs. Van was still alive! The others gathered around Van’s screen, vying for a chance to see what he saw. Van wiggled his way up through the bodies until he could see around the room. Bug soldiers were walking around with their laser guns at the ready, looking for surviors.
+His character had fallen forward and had made it’s way under the dead carcases of several bugs. Van was still alive! The others gathered around Van’s screen, vying for a chance to see what he saw. Van wiggled his way up through the bodies until he could see around the room. Bug soldiers were walking around with their laser guns at the ready, looking for survivors.
 “Holy shit, they don’t see him!” Steve exclaimed.
 
 “Dude, you may have found a glitch. Stay there, see if the AI’s notice you,” Joshua said.
@@ -960,7 +958,7 @@ She pointed to a browser window that was set to a page with a link to a Android 
 
 Jo noticed her hesitation. “It’s okay, I’m not asking to collect any data on you. The app is just a client so you can play the game.”
 
-She pulled out her own Android phone and showed it to Dancia. Her app was called VirtualGamer and it looked pretty boring with no graphics or logos. Just like something a developer would make who didn’t have any design foo.
+She pulled out her own Android phone and showed it to Dancia. Her app was called VirtuaGamer and it looked pretty boring with no graphics or logos. Just like something a developer would make who didn’t have any design foo.
 Dancia typed in the URL to her phone and clicked the link. It loaded through the Play Store just like any Android app. The download took a while.
 
 “It’s a big file, lots of graphics drivers and libs. You can delete it afterwards if you want.”
@@ -1052,9 +1050,9 @@ Jo replied with zero irony, “Neither have I.”
 ## Chapter 7
 
 
-Van's Prius pulled silently into his driveway and shut down. He got slowly got out and shuffled to his front door. He was still pretty bummed about losing the game and the beers he had consumed at the Ram had left him a little light headed. He unlocked his front door to go inside. An unusual, rustling in the trees off to his left made him look that way. But he didn't see anything odd and quickly went inside and locked the door. Walking through his condo he set his briefcase down on the table and stood looking out the back sliding glass doors that offered a view of the slow moving Boise river. He waited patiently for a riverside unit and now absolutely loved living literally on the Green Belt trail, riverside. If he opened his windows at night, he could even hear the river when it was fast moving in the Spring.
+The white Prius pulled silently into the driveway and shut down. Van  slowly got out and shuffled to his front door. He was still pretty bummed about losing the game and the beers he had consumed at the Ram had left him a little light headed. He unlocked his front door to go inside. An unusual, rustling in the trees off to his left made him look that way. But he didn't see anything odd and quickly went inside and locked the door. Walking through his condo he set his briefcase down on the table and stood looking out the back sliding glass doors that offered a view of the slow moving Boise river. He waited patiently for a riverside unit and now absolutely loved living literally on the Green Belt trail, riverside. If he opened his windows at night, he could even hear the river when it was fast moving in the Spring.
 
-Something that sounded like a vicious cat fight was going on in the thicket across the bike and joging trail.  There were frequently wild animals passing through along the river on the public sidewalk. He wondered if it were just domestic cats tangling. He undid the block of wood that blocked his door from sliding, unlocked it, slid aside the glass and screen doors and stepped out onto his wooden porch. Peering into the dim moonlight, he couldn't see anything and the noise he made coming outside was not enough to stop the fight.
+Something that sounded like a vicious cat fight was going on in the thicket across the bike and jogging trail.  There were frequently wild animals passing through along the river on the public sidewalk. He wondered if it were just domestic cats tangling. He undid the block of wood that blocked his door from sliding, unlocked it, slid aside the glass and screen doors and stepped out onto his wooden porch. Peering into the dim moonlight, he couldn't see anything and the noise he made coming outside was not enough to stop the fight.
 
 He twisted on the tiny pocket light from his key chain and walked across the dimly lit jogging trail. The sound seemed to get louder as he approached and he started thinking maybe he shouldn't try and break it up. But he had to try, he was too much of an animal lover to let nature run it's course.
 
@@ -1066,27 +1064,41 @@ A figure lingered over him but all he could see was the kitchen knife stabbing h
 
 // ----------------------- //
 
-The black patrol car eased to a stop at the end of the drive like a prowling panther. Two Boise PD officers got out and activated their Mag flashlights. There didn't seem to be any signs of foul play from the front of the condo. A thin man dressed in jogging shorts and a sweat stained tank top came through the weeds in the direction of the Green Belt beside the condominium. His hands were up and he looked peeked.
+A black patrol car eased to a stop at the end of the street like a prowling panther. Two Boise PD officers got out and activated their Mag flashlights. There didn't seem to be any signs of foul play from the front of the condo. A thin man dressed in jogging shorts and a sweat stained tank top came through the weeds in the direction of the Green Belt behind the condominium. His hands were up and he looked peeked.
 
 "Over here, officers. I'm the one who called."
 
-Sergeant McReed shined her light over the man and then behind, where he had come. She nodded to her partner, a young, wide eyed kid named Givens. It was his first week on the night shift and only something like his first month in uniform. McReed followed the jogger to the pedestrian trail popular with fitness minded civilians. 
+Sergeant McReed shined her light over the man and then behind, where he had come. She nodded to her partner, a young, wide eyed kid named Givens. It was his first week on the night shift and only something like his first month in uniform. McReed followed the jogger to the pedestrian trail popular with fitness minded citizens. 
 
-"I was just on my normal nightly jog and I damn near tripped on him," the man said, pointing to the body on the ground near the treeline on the river side of the trail. 
+"I was just on my normal nightly jog and I damn near tripped on him," the man said, pointing to the body on the ground near the tree line on the river side of the trail. 
 
 "Givens, take the gentleman's statement over there. I'll handle this."
 
-Givens looked over at the body and swallowed hard. He took out his notebook and guided the jogger over under a light nearby. As he was about to ask his first question he noticed the back sliding door was open in the last condo of the street. "Hey, Sarge. Back door is open over there. Could be where the victim lived."
+Givens looked over at the body and swallowed hard. He took out his notebook and guided the jogger over under a street light nearby. As he was about to ask his first question he noticed the back sliding door was open in the last condo of the street. "Hey, Sarge. Back door is open over there. Could be where the victim lived."
 
-She waved her acknowledgement and keyed her radio to report the death. The body was on it's back and covered with blood. Keys and a still burning flashlight were on the pavement nearby. She kept her distance as she spoke on the radio. Crime scenes needed to be blocked off, not messed with. She took out a roll of yellow tape to mark off the trail to keep other people from running through the scene. _Who the hell would be jogging after midnight on a Sunday_, she thought. Obviously at least one fitness nut.
+She waved her acknowledgement and keyed her radio to report the death. The body was on it's back and covered with blood. Keys and a still burning flashlight were on the pavement nearby. She kept her distance as she spoke on the radio. Crime scenes needed to be blocked off, not messed with. She took out a roll of yellow crime scene tape to block off the trail to keep other people from running through the scene. _Who the hell would be jogging after midnight on a Sunday_, she thought. Obviously, at least one fitness nut.
 
 // ----------------------- //
 
-Detective Plait arrived on the scene about ten minutes later. By that time another patrol car with flahsing lights was parked in the dead end and the place was crawling with crime scene investigators. Plait made his way to the Green Belt and was met by Sergeant McReed. "Good morning, Detecive. Deja-view, eh?"
+Detective Plait arrived on the scene about ten minutes later. By that time another patrol car with flashing lights was parked in the dead end and the place was crawling with crime scene investigators. Plait made his way to the Green Belt and was met by Sergeant McReed. "Good morning, Detective. Deja-view, eh?"
 
-Plait nodded politely but didn't say anything, moving past her to the body, now covered with a tarp. The Medical Examiner was on his way to the scene but Plait had to see the wounds for himself. He pulled up the tarp and shined his pocket light on the victim. He was a young professional looked to be in his mid to late twenties with his throat slit open and mutilple stab wounds in his upper body. Just like that kid on Friday night in Freak Alley. 
+Plait nodded politely but didn't say anything, moving past her to the body, now covered with a tarp. The Medical Examiner was on his way to the scene but Plait had to see the wounds for himself. He pulled up the tarp and shined his pocket light on the victim. He was a young professional looked to be in his mid to late twenties with his throat slit open and multiple stab wounds in his upper body. Just like that kid on Friday night in Freak Alley. 
 
-Plait checkd the man's back pockets and found a wallet. He pulled it out and flipped it open to the driver's license. Van Ledderman, address the same as the end condo unit. Plait took out his notepad and checked the list of names from the gamers at Mashers. Yup, he was one of them. _Shit, we got a serial_.
+Plait checked the man's back pockets and found a wallet. He pulled it out and flipped it open to the driver's license. Van Ledderman, address the same as the end condo unit. Plait took out his notepad and checked the list of names from the gamers at Mashers. Yup, he was one of them. _Shit, we got a serial_.
+
+Plait shined his light down the trail and the darkness suffocated the LED light. He took off down the trail a bit after ducking under the yellow tape that McReed had set up around the body.  The Green Belt trail curved to the right after passing by a dirt parking area. Plait glanced back to the body at the far edge of the condo units. He learned early on in his career to think like a criminal when trying to evaluate crime scenes. 
+
+If the murderer was waiting to kill the victim in this dark stretch of the Greenbelt, he could have parked at the MK Nature Center parking lot or further down. Plait called over Sergeant McReed.
+
+"I'm going for a short walk down the trail, let me know when the Medical Examiner arrives," Plait said, his arm patting her on the back. She nodded, looking down the darkened path. "I'll have dispatch call your cell."
+
+Plait smiled, "Perfect."
+
+Then he headed off down the Greenbelt alone, his flashlight skipping all around ahead and to the side as he walked. There was an entrance to the MK Nature Center just off the trail and further down, a path to the Walnut Street parking lot. Plait knew this area pretty good from attending field trips with his son's elementary school. He wandered further down the trail, keeping an eye on his watch to understand how long it would take to walk the trail from where the victim was found.
+
+Just a short ways further was another road, this one dirt . They were the only two entrances to Kristin Armstrong Park. If the killer was trying not to be seen, he might have parked in the dirt lot and not been seen by anyone from the park or in nearby houses. Plait stepped off the trail and stood in the dirt parking lot, fumbling with his pants pocket to pull out an empty sandwich bag. He got to his knees and scooped up some dirt into the bag. 
+
+His cell phone went off in vibrate mode and he pulled it out. It was Dispatch alerting him to the arrival of the Medical Examiner and an ambulance to the scene. 
 
 
 ## Chapter 8
@@ -1105,18 +1117,18 @@ He got up and padded to the front door, scratching the butt of his black compres
 
 Joshua pushed the release and opened his door as Plait came inside. He looked as tired as Joshua felt.
 
-“Sorry to disturb you, but victim’s another member of your gamer group.”
+“Sorry to disturb you, but the victim’s another member of your gamer group.”
 Joshua shut the door and motioned to the main room for Plait to have a seat. Then he pointed back to his room. “Excuse me, I’ll just grab some clothes.”
 
-Plait nodded and plopped down onto a leather couch to look out at the city while he waited. Joshua came back wearing black jeans and a plain black t-shirt. He looked at Plait with dread and anticipation as he sat down in a chair opposite the detective.
+Plait nodded and plopped down onto a leather couch to look out at the city while he waited. Joshua came back wearing black jeans and a plain black t-shirt. He looked at Plait with dread and anticipation as he sat down in a chair opposite the detective.  "Who was it?" Joshua cautiously asked.
 
-“Mr. Van Ledderman was found dead outside his apartment about an hour ago.”
+“A one Mr. Van Ledderman was found dead outside his condo about an hour ago.”
 
-Joshua shoot his head and swore. “This is insane!”
+Joshua shook his head and swore. “Damn, this is insane!”
 
 Plait agreed, flipping over his notepad. “Cause of death was multiple stab wounds from a kitchen knife.”
 
-“Just like Teddy,” Joshua added.
+“Just like Teddy,” Joshua added. Plait nodded.
 
 “When was the last time you saw Van?”
 
@@ -1132,7 +1144,7 @@ Plait shook his head slowly.
 
 Plait nodded thoughtfully. “So nothing happened to cause anyone to disparage Van more than anyone else?”
 
-Joshua understood Plait was looking for a motive and the only thing that he could think about was that it meant the killer was someone in the group. I can’t believe one of us would be capable of murder!
+Joshua understood Plait was looking for a motive and the only thing that he could think about was that it meant the killer was someone in the group. He couldn’t believe one of them was capable of murder.
 
 “Actually, now that I think about it. Van was the only one of us who made it to the next level of the game. But then he got stupidly killed before anyone could re-spawn which caused us to be kicked from the tournament. Yeah, nobody was very happy with him after that.”
 
@@ -1236,15 +1248,15 @@ Dancia had an RFID key that let her into Joshua’s apartment. She entered unann
 
 Joshua put an arm around her and pulled her to his side. She was wearing a white and pink Hello Kitty sleep shirt with fuzzy pink slippers. Not exactly dressed for public, but then she had half of his closet filled with her own attire so probably figured it was pointless to get dressed. Josha turned to look up at her. "Do you know Jo's last name?"
 
-Dancia read his screen and could see that he was doing searches for her all over the dark web. She looked down at him, the pale safrin light of the montior made her fair skin glow. "No."
+Dancia read his screen and could see that he was doing searches for her all over the dark web. She looked down at him, the pale saffron light of the monitor made her fair skin glow. "No."
 
 "There's been another murder."
 
-Dancia stared down at him, her eyes dialated. "Who?"
+Dancia stared down at him, her eyes dilated. "Who?"
 
 "Van. Stabbed like Teddy only he was outside his home."
 
-Dancia shed a tear as she put her arms around Joshua. He held onto her as she cried. They had known Van for over four years. He had just wandered into Bashers one afternoon and started playing games with the teenagers. Life as a patent attorney was boring and he loved to escape reality in games.
+Dancia shed a tear as she put her arms around Joshua. He held onto her as she cried. They had known Van for over four years. He had just wandered into Mashers one afternoon and started playing games with the teenagers. Life as a patent attorney was boring and he loved to escape reality in games.
 
 Dancia rested her head against Joshua's and started reading his browser tabs. "Do you think Jo is the killer?"
 
@@ -1265,8 +1277,12 @@ Joshua shrugged. "Someone in our group is a killer. If we don't figure out who a
 
 ## Chapter 9
 
-<Scene with Plait talking to Jo>
 
+Plait pulled along the street and parked in front of the house matching Dancia's description. It was dark and a single vehicle was parked in the driveway. He got out and walked across the street and into the driveway. The car was an older model blue colored Toyota FJ. He took out his flashlight and shined it on the tires. They were well worn and still had light colored dust on them. He bent down and took out a second sandwich bag, this one had Fritos chip crumbs in it. He used a pocket knife to scrape off the dust from the tire into the bag. He'd let forensics separate the dirt from the chips.
+
+He put away his knife and flashlight and walked quietly up the path to the front door.
+
+// ----------------------- //
 
 Joshua sent an email to his office that he was taking some time off due to a the death of an acquaintance. He followed Dancia back to her place so she could get to work on time and then he took a drive uptown to find where Jo was staying. He wanted to talk with her and see for himself what she was coding and maybe get to know her a bit. A part of him was weary of seeing her, but not because he thought she was dangerous. He was more afraid of being alone with her in general. She was just about the hottest woman that had ever stepped bare foot into Mashers. He hoped he would be strong willed enough to be able to ward off an advance from her. Maybe he was too full of himself, but he had noticed how interested she had been, even knowing Dancia and him were an item. Add to that the possibility that she could go all Glenn Close on him and he really didn't want to see her alone at all.
 
