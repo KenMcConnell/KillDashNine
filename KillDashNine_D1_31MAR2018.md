@@ -1280,11 +1280,30 @@ Joshua shrugged. "Someone in our group is a killer. If we don't figure out who a
 
 Plait pulled along the street and parked in front of the house matching Dancia's description. It was dark and a single vehicle was parked in the driveway. He got out and walked across the street and into the driveway. The car was an older model blue colored Toyota FJ. He took out his flashlight and shined it on the tires. They were well worn and still had light colored dust on them. He bent down and took out a second sandwich bag, this one had Fritos chip crumbs in it. He used a pocket knife to scrape off the dust from the tire into the bag. He'd let forensics separate the dirt from the chips.
 
-He put away his knife and flashlight and walked quietly up the path to the front door.
+He put away his knife and flashlight and walked quietly up the path to the front door. There didn't seem to be anything abnormal about the front yard or the door. He considered whether it was prudent to confront the girl at four in the morning but if she were the murderer the time of day wouldn't prevent her from running from a detective. 
+
+Sergeant McReed was one street over and behind the house in her Dodge patrol car. She had become his go-to backup person on mid-shift. Plait trusted her to have his back and appreciated her extensive experience as a beat cop. 
+
+He pushed the door bell button three times giving each push a good three seconds. The chime was loud enough to be heard outside. Plait stepped back, took out his badge and put his right hand on the grip of his Glock, tucked in the holster at the small of his back. 
+
+A short female approached the door and flipped on the porch light. Plait winced slightly as his night vision was compromised.  The heavy wooden door opened pretty wide to reveal the woman, dressed in a short, bathrobe. Her eyes were squinting as she looked at him. She sure as hell didn't look like she had been awake long enough to murder someone.
+
+"Detective Plait, Boise PD. Sorry to disturb you ma'am, but there's been a murder and you're wanted for questioning."
+
+"What? Who was murdered?"
+
+Plait recited the name that from the victim's wallet. "Van Ledderman."
+
+She stared at him like she had no idea who that was. He studied her for a moment before continuing. She was maybe five foot four, dirty blonde hair just past her rounded shoulders. She didn't seem big enough to have taken down either victim but Plait knew size was rarely a reliable measure when murder was the crime. He's seen small guys take down big guys and plenty of women straight up wreck men twice their size. 
+
+"I have two witnesses that place you at Mashers yesterday afternoon."
+
+
+
 
 // ----------------------- //
 
-Joshua sent an email to his office that he was taking some time off due to a the death of an acquaintance. He followed Dancia back to her place so she could get to work on time and then he took a drive uptown to find where Jo was staying. He wanted to talk with her and see for himself what she was coding and maybe get to know her a bit. A part of him was weary of seeing her, but not because he thought she was dangerous. He was more afraid of being alone with her in general. She was just about the hottest woman that had ever stepped bare foot into Mashers. He hoped he would be strong willed enough to be able to ward off an advance from her. Maybe he was too full of himself, but he had noticed how interested she had been, even knowing Dancia and him were an item. Add to that the possibility that she could go all Glenn Close on him and he really didn't want to see her alone at all.
+Joshua sent an email to his office that he was taking some time off due to a the death of a friend. He followed Dancia back to her place so she could get to work on time and then he took a drive uptown to find where Jo was staying. He wanted to talk with her and see for himself what she was coding and maybe get to know her a bit. A part of him was weary of seeing her, but not because he thought she was dangerous. He was more afraid of being alone with her in general. She was just about the hottest woman that had ever stepped bare foot into Mashers. He hoped he would be strong willed enough to be able to ward off an advance from her. Maybe he was too full of himself, but he had noticed how interested she had been, even knowing Dancia and him were an item. Add to that the possibility that she could go all Glenn Close on him and he really didn't want to see her alone at all.
 
 The house was just as Dancia had described it to Detective Plait. Joshua sat in his Porsche 356 for a few minutes parked across the street from the house. It looked pretty normal, if not a bit high rent for the area. He chatted up Trip on his phone.
 
