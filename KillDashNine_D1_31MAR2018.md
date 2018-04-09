@@ -1279,7 +1279,7 @@ Joshua shrugged. "Someone in our group is a killer. If we don't figure out who a
 ## Chapter 9
 
 
-Plait pulled along the street and parked in front of the house matching Dancia's description. It was dark and a single vehicle was parked in the driveway. He ran the license plate number on his computer and it came up clean and registered to Josephine E. Connors and the mailing address was a PO Box. That in itself could be a ding against her.
+Plait pulled along the street and parked in front of the house matching Dancia's description. It was dark and a single vehicle was parked in the driveway. He ran the license plate number on his computer and it came up clean and registered to Josephine E. Thomas and the mailing address was a PO Box. That in itself could be a ding against her.
 
 He got out and walked across the street and into the driveway. The car was an older model blue colored Toyota FJ. He took out his flashlight and shined it on the tires. They were well worn and still had light colored dust on them. He bent down and took out a second sandwich bag, this one had Fritos chip crumbs in it. He used a pocket knife to scrape off the dust from the tire into the bag. He'd let forensics separate the dirt from the chips.
 
@@ -1406,4 +1406,54 @@ The owner of the Mashers was Nate Chambers. He didn't have a criminal record, bu
 
 Plait read that last piece and immediately became suspicious of how his mother had died. Turned out she had a fatal heart condition that was undiagnosed and died of natural causes. Another dead end. 
 
+While running Jo's full name through his usual databases he found something odd. Her last name was Connor and Plait couldn't find anything on her parents. He even checked birth announcements for three surrounding states and came up empty on her. Either she was not originally from around here, or she was not from the US. Recalling her face from this morning she didn't look European to him. Her accent was distinctly Western American. 
 
+He broadened the search to include all states and US territories. Perhaps her parents were in the military and she was born over seas. That search came back empty. It was starting to look like she was his number one suspect but he didn't have a motive. He put her information in a Word document of its own and continued searching on the next member of the group. This one was Dancia Rivers, whom Plait had met a few years back when she was being hunted on-line by a former employee of RegTech who was after Joshua. That man was Lawrence Taggert and he was killed in self defense by Dancia up in a cabin inn McCall, Idaho.
+
+Plait remembered that incident pretty clearly and wondered if somehow this string of murders was related. The only common denominator was Dancia and Joshua. Neither one of them had a criminal record or anything suspicious in their past, as far as Plait knew. He ran their names through his system anyway, you never knew when the computer search algorithm would find some damn odd connection. Again, he came up empty.
+
+It was getting on noon and he was starting to feel his stomach grinding for food. He ignored it for a bit longer and ran another name through the system. This time Tripp Thomas, Joshua's good friend. As he entered the name into the data field he realized the surname was the same as Josephine. The hairs on the back of his neck prickled as he hit enter. 
+
+The search took longer to complete than the others. Plait picked up his Dutch Bros coffee cup and tipped it back. It was empty. _Dammit_. He stared at the screen while putting the blue and white cup down. The results suddenly streamed by in a blur and then stopped. Tripp and Josephine Thomas had the same father, Greg Thomas of Boise. But the mother was not listed. Records showed Greg Thomas married to Sheryl Thomas, formally Sheryl Conner of Moscow, Idaho. 
+
+That was intriguing. Plait considered calling Joshua to ask him if he knew Tripp had any siblings. He didn't want to question Tripp and find out he wasn't told for a reason. The next step would be to talk with his father, Greg. Records showed he worked for RegTech as a software engineer.  Both children of Greg Thomas were the same age, near as Plait could figure from what little data he could find on Jo.
+
+He pulled out his cell and dialed Joshua Jones.
+
+"This is Detective Plait, Boise PD."
+
+The voice on the other end sounded distracted and he could hear wind blowing as if he were in a convertible.
+
+"Hello. Please don't tell me someone else has been murdered."
+
+"No. I have a question about your friend Tripp Thomas."
+
+"Oh, go ahead."
+
+"Does he know he has a sibling?"
+
+There was dead air for a moment and Plait thought maybe the connection had dropped. But then he heard the wind blowing again.  "I didn't know he had any brothers or sisters and I've known Tripp his whole life."
+
+"I'm going to need to speak with his father, Greg Thomas. I show him employed by RegTech."
+
+"Yea, he's in building one. Tripp's gonna freak when I tell him he has a brother or sister."
+
+"Can you please not speak to him about this until after I've talked with his father? We want to keep family matters private."
+
+"Oh, sure. Not a problem."
+
+"Thanks. I'll be in touch with you," Plait finished and hung up. He stood up and grabbed his car keys. He could grab a burger on the way and be there in no time. 
+
+"Hey, Roger. I'm heading out to RegTech to question a person of interest." 
+
+Roger was a detective in Narcotics. It was a SOP to let someone know when you went out to interrogate someone alone.
+
+// ----------------------- //
+
+Plait parked in visitor lot at the main RegTech building and came through the glass doors to the front desk. A man was sitting there who's main purpose was to sign in guests. Plait flashed his badge and asked for a Security Escort to the desk of Greg Thomas in Building One. After a few minutes of waiting for someone to respond he was following a slender old gentleman up the staircase to the second floor. 
+
+"Ever been out to RegTech before Detective?"
+
+"It's been quite a while. Thanks for the escort, I'm sure I'd get lost without you."
+
+The old gentleman in the gray security polo grinned appreciatively. They walked for what seemed like forever before coming to a row of cubes that ended in a six by six cube occupied by a man in his late forties  <!-- Ooops, Greg is a retired banker in NP -->
