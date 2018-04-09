@@ -1246,7 +1246,7 @@ Dancia had an RFID key that let her into Joshua’s apartment. She entered unann
 
 “What’s going on? Where’s Plait?”
 
-Joshua put an arm around her and pulled her to his side. She was wearing a white and pink Hello Kitty sleep shirt with fuzzy pink slippers. Not exactly dressed for public, but then she had half of his closet filled with her own attire so probably figured it was pointless to get dressed. Josha turned to look up at her. "Do you know Jo's last name?"
+Joshua put an arm around her and pulled her to his side. She was wearing a white and pink Hello Kitty sleep shirt with fuzzy pink slippers. Not exactly dressed for public, but then she had half of his closet filled with her own attire so probably figured it was pointless to get dressed. Joshua turned to look up at her. "Do you know Jo's last name?"
 
 Dancia read his screen and could see that he was doing searches for her all over the dark web. She looked down at him, the pale saffron light of the monitor made her fair skin glow. "No."
 
@@ -1278,15 +1278,19 @@ Joshua shrugged. "Someone in our group is a killer. If we don't figure out who a
 ## Chapter 9
 
 
-Plait pulled along the street and parked in front of the house matching Dancia's description. It was dark and a single vehicle was parked in the driveway. He got out and walked across the street and into the driveway. The car was an older model blue colored Toyota FJ. He took out his flashlight and shined it on the tires. They were well worn and still had light colored dust on them. He bent down and took out a second sandwich bag, this one had Fritos chip crumbs in it. He used a pocket knife to scrape off the dust from the tire into the bag. He'd let forensics separate the dirt from the chips.
+Plait pulled along the street and parked in front of the house matching Dancia's description. It was dark and a single vehicle was parked in the driveway. He ran the license plate number on his computer and it came up clean and registered to Josephine E. Connors and the mailing address was a PO Box. That in itself could be a ding against her.
 
-He put away his knife and flashlight and walked quietly up the path to the front door. There didn't seem to be anything abnormal about the front yard or the door. He considered whether it was prudent to confront the girl at four in the morning but if she were the murderer the time of day wouldn't prevent her from running from a detective. 
+He got out and walked across the street and into the driveway. The car was an older model blue colored Toyota FJ. He took out his flashlight and shined it on the tires. They were well worn and still had light colored dust on them. He bent down and took out a second sandwich bag, this one had Fritos chip crumbs in it. He used a pocket knife to scrape off the dust from the tire into the bag. He'd let forensics separate the dirt from the chips.
+
+He put away his knife and flashlight and brushed his hand over the hood as he walked quietly up the path to the front door. The engine was slightly warm meaning the car was probably driven in the last hour or two, which definitely coincided with when the murder took place. Not direct evidence, but also not a point in her favor.
+
+There didn't seem to be anything abnormal about the front yard or the door. He considered whether it was prudent to confront the girl at four in the morning but if she were the murderer the time of day wouldn't prevent her from running from a detective. 
 
 Sergeant McReed was one street over and behind the house in her Dodge patrol car. She had become his go-to backup person on mid-shift. Plait trusted her to have his back and appreciated her extensive experience as a beat cop. 
 
-He pushed the door bell button three times giving each push a good three seconds. The chime was loud enough to be heard outside. Plait stepped back, took out his badge and put his right hand on the grip of his Glock, tucked in the holster at the small of his back. 
+He pushed the door bell button three times giving each push a good three seconds. The chime was loud enough to be heard outside. Plait stepped back, took out his badge and put his right hand on the grip of his Sig P320 RX, tucked in the holster at the small of his back. 
 
-A short female approached the door and flipped on the porch light. Plait winced slightly as his night vision was compromised.  The heavy wooden door opened pretty wide to reveal the woman, dressed in a short, bathrobe. Her eyes were squinting as she looked at him. She sure as hell didn't look like she had been awake long enough to murder someone.
+A short female approached the door and flipped on the porch light. Plait winced slightly as his night vision was compromised.  The heavy wooden door opened pretty wide to reveal the woman, dressed in a short, bathrobe that she hastily pulled closed. Her eyes were squinting as she looked at him. She sure as hell didn't look like she had been awake long enough to murder someone. One point in her favor.
 
 "Detective Plait, Boise PD. Sorry to disturb you ma'am, but there's been a murder and you're wanted for questioning."
 
@@ -1294,12 +1298,37 @@ A short female approached the door and flipped on the porch light. Plait winced 
 
 Plait recited the name that from the victim's wallet. "Van Ledderman."
 
-She stared at him like she had no idea who that was. He studied her for a moment before continuing. She was maybe five foot four, dirty blonde hair just past her rounded shoulders. She didn't seem big enough to have taken down either victim but Plait knew size was rarely a reliable measure when murder was the crime. He's seen small guys take down big guys and plenty of women straight up wreck men twice their size. 
+She stared at him like she had no idea who that was. He studied her for a moment before continuing. She was maybe five foot four, dirty blonde hair just past her rounded shoulders. Freckles around the bridge of her nose the only blemish on her sun tanned skin. She didn't seem big enough to have taken down either victim but Plait knew size was rarely a reliable measure when murder was the crime. He's seen small guys take down big guys and plenty of women straight up wreck men twice their size. 
 
 "I have two witnesses that place you at Mashers yesterday afternoon."
 
+She continued looking at him like he were crazy. "So?"
 
+"The victim was at that game.  I was informed by a mister Jones that you are new to the gamer team. You were the only person there he didn't know personally so he couldn't vouch for you."
 
+She shook her head. "So that makes me the killer? You better do better than that, Colombo."
+
+Plait motioned to the driveway. "You're car is warm, have you been somewhere this evening?"
+
+Jo looked at him funny and then out to her car. "What? I haven't use it in days. " She opened the door further and stepped outside to walk barefoot over to her car. It was open and she looked inside for a moment before turning to Plait.
+
+"Nothing seems to be missing, but I don't normally keep anything in it."
+
+Plait took out his pocket flashlight and walked around the vehicle looking it over carefully. It had the usual signs of wear that most used cars sported, but nothing seemed out of place or suspicious. "Do you always keep it unlocked?" 
+
+Jo nodded sheepishly. "Look, I'm a free spirit, what can I say?"
+
+"I suggest you lock it or keep it inside the garage."
+
+"The garage is full of the owner's cars. I'm just house sitting."
+
+"Does anyone else have a key to your car, ma'am?"
+
+Jo shook her head. "No, but it's not too hard to start him if you know what you're doing."
+
+Plait took out a business card and handed it to her. "I'm sorry to have disturbed you at this hour, Ms Connor. Please feel free to contact me if you have any questions. I may be in touch with further questions at a later date."
+
+Jo took the card and gave him a weak smile before heading back inside. Plait waited for her to go inside and listened for the door being locked before heading back to his car. It was going to be a long day ahead. He had to run a background check on everyone in that game and see what connections he could find between the players. This young woman didn't seem to be a cold blooded killer but that certainly didn't rule her out as a suspect. At lease not yet. 
 
 // ----------------------- //
 
@@ -1367,4 +1396,13 @@ Jo looked disappointed as she tilted her head back to wet her hair in the pool. 
 
 Jo let him go and didn't get out of the pool to follow him.
 
-// ----------------------- //
+
+## Chapter 10
+
+Detective Plait was on his second large coffee as he sat at his office desk and stared at his computer. He hated researching things on the internet but in today's connected world, there was no way around it. He had started with ordering the arrest records of everyone on the team. That resulted in no criminal records beyond traffic violations. He didn't care about those, everyone ran a red light or had a speeding ticket at some point in their lives. What he was more interested in was more serious infractions that might have resulted in felony crimes.
+
+The owner of the Mashers was Nate Chambers. He didn't have a criminal record, but his father did. Well, not exactly a criminal record but his father, Jim Chambers died under mysterious circumstances about a decade ago. Reading through police records it appeared that Jim was the victim of random street crime. Nate was twenty-one at the time of his father's murder and was awarded his father's estate by the courts as his mother had died when he was a teenager. 
+
+Plait read that last piece and immediately became suspicious of how his mother had died. Turned out she had a fatal heart condition that was undiagnosed and died of natural causes. Another dead end. 
+
+
