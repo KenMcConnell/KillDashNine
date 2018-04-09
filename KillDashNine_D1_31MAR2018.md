@@ -11,6 +11,7 @@
 
 ## Chapter 0
 
+Teddy had taken the same route home for months and had never once been stabbed and left to die. Until now. There was nothing unusual about the night. It was a typically warm, early summer evening in the City of Trees. Teddy always walked back to his car through Freak Alley. His friend Melina had painted her masterpiece on the alley walls and he loved to stare at it as he passed by to the nearby lot where he parked his car. Despite some of the ghoulish apparitions adorning the backs of buildings in the alley, he never felt unsafe during his walk. This was Boise after all, one of the safest capital cities in the country.
 
 But this night was different than all the others. For one thing, he was pretty nearly drunk which was unusual for him because he rarely drank on gaming nights. Pete had made a new lager and Teddy had tilted back one too many of them as the night wore on. It had affected his game play towards the end, resulting in him getting killed by a horde of raging, four armed bugs. Those fucking bugs swarmed like ants and he didn’t have a chance after falling down. None of his fellow clan members could reach him before he was overwhelmed.
 
