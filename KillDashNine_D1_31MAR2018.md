@@ -1434,26 +1434,102 @@ The voice on the other end sounded distracted and he could hear wind blowing as 
 
 There was dead air for a moment and Plait thought maybe the connection had dropped. But then he heard the wind blowing again.  "I didn't know he had any brothers or sisters and I've known Tripp his whole life."
 
-"I'm going to need to speak with his father, Greg Thomas. I show him employed by RegTech."
+"I'm going to need to speak with his father, Greg Thomas. "
 
-"Yea, he's in building one. Tripp's gonna freak when I tell him he has a brother or sister."
+"Greg's a retired banker. I can get you his number. Tripp's gonna freak when I tell him he has a brother or sister."
 
 "Can you please not speak to him about this until after I've talked with his father? We want to keep family matters private."
 
 "Oh, sure. Not a problem."
 
-"Thanks. I'll be in touch with you," Plait finished and hung up. He stood up and grabbed his car keys. He could grab a burger on the way and be there in no time. 
+Joshua gave him Greg Thomas's phone number from memory. The man had been like a second father to him after Joshua's parents died when he was a teenager. "Thanks. I'll be in touch with you," Plait finished and hung up. 
 
-"Hey, Roger. I'm heading out to RegTech to question a person of interest." 
+He leaned back in his cheap office chair and dialed the number Joshua had  given him. An older gentleman answered somewhat tentatively.  "Hello?"
 
-Roger was a detective in Narcotics. It was a SOP to let someone know when you went out to interrogate someone alone.
+"Mr. Greg Thomas?"
+
+"Speaking."
+
+"This is Detective Bill Plait, Boise Police Department. I'd like to have a word with you about Josephine." 
+
+There was a nervous hesitation in his voice before he answered. "I'm at the Nampa airport, Tower Grill. We'd better speak in person."
 
 // ----------------------- //
 
-Plait parked in visitor lot at the main RegTech building and came through the glass doors to the front desk. A man was sitting there who's main purpose was to sign in guests. Plait flashed his badge and asked for a Security Escort to the desk of Greg Thomas in Building One. After a few minutes of waiting for someone to respond he was following a slender old gentleman up the staircase to the second floor. 
+Twenty minutes later, Plait pulled up to the Fixed Base Operator office at the end of Municipal Drive. He hadn't been out this far in some time and didn't realize there was now a thriving local grill above the FBO. His stomach was growling pretty good and he could sure use a fresh shot of caffeine, either a soda or a coffee.
 
-"Ever been out to RegTech before Detective?"
+An older gentleman was standing on the balcony looking down at him when he walked up. The man waved to him.  Plait waved back. He was the right age to be Greg Thomas. By the time he made it to the balcony on the stairs he clasped hands with the man.  "Greg Thomas," the man said as a greeting. 
 
-"It's been quite a while. Thanks for the escort, I'm sure I'd get lost without you."
+Plait picked up on the guarded tone to his voice. "Bill Plait, thanks for meeting with me on such short notice."
 
-The old gentleman in the gray security polo grinned appreciatively. They walked for what seemed like forever before coming to a row of cubes that ended in a six by six cube occupied by a man in his late forties  <!-- Ooops, Greg is a retired banker in NP -->
+Greg guided him over to the door that led into the air conditioned restaurant.  "I have a table inside, where it's cool."
+
+The Tower Grill was owned by a tall, thin man with a full, trimmed beard and a crew cut named Nate. He served classic American food with a homemade flare that the locals loved and pilots flocked to eat at from all over Idaho. There were various authentic airplane inspired art and propellers hanging from the walls around hand strewn wood tables. Plait immediately felt at home there, despite not really being that interested in flying. He'd taken his family to the air museum at the other end of the road a few times over the years. His youngest loved airplanes and wanted to be a pilot someday.
+
+"Sorry if I startled you on the phone, but I thought it best that we talk in private," Plait said after they ordered burgers and cokes.
+
+"So what has she done to get the attention of the police?"
+
+Plait looked around before responding, keeping his voice appropriately low. "She's in a gaming group or clan or whatever they call them. We suspect someone in the group is murdering the other members."
+
+Greg's expression changed from amused something short of horrified. "Is Jo a suspect?"
+
+"No. But she is a person of interest until I can catch the killer. Two members of the group were stabbed to death in the last three days."
+
+Greg swore softly as he shook his head slowly.  "I don't really know my daughter very well. We've not been close for some time now. But I don't think you need to worry about her as a suspect."
+
+"Why is that?"
+
+This time Greg looked around before speaking in a noticeably lower voice.  "I can't talk much about this, I hope you'll understand. But she was part of a secret government project that left her, shall we say, enhanced. She's probably the smartest person alive right now. Her IQ is off the charts."
+
+Plait nodded. "Intelligence is not indicator for someone's predilection to kill. Plenty of really smart people have committed murder, Mr. Thomas."
+
+"Perhaps. How did you find out I was her father? If you don't mind me asking?"
+
+Plait didn't mind. "I was investigating other members of this gamer group and your son, Tripp and her had the same last name."
+
+"Tripp? Does he even know who she is?"
+
+"Unknown. But I suspect neither one of them know each other, am I correct in that assertion?"
+
+Greg nodded. "Tripp was not a part of the project. I had him with my wife and no, they've never met."
+
+"You still haven't said how you found me?"
+
+"Through Tripp's friend, Joshua Jones. Also in the group."
+
+Greg shook his head again as Nate delivered their plates. Nate and Greg seemed to know each other pretty well and Nate sensed it wasn't a good time for chit chat and left them to eat. 
+
+"Trouble seems to always find that kid. His dad was a part of our secret project and it got him and his wife killed when Joshua was still a teenager. My wife and I took him in and raised him as our own."
+
+Plait dug in on his P-38 burger with bacon and BBQ sauce. It was damn good and he savored every bite. Greg nibbled on his plain 172 burger, named after the ubiquitous pilot maker from Cessna.
+
+"Well, it looks like three of the members of this group are yours," Plait offered.
+
+"You can probably rule them out, detective, but I understand if you can't take me on my word on them."
+
+Plait wiped his mouth with a napkin and took a long sip from his Coke. "You must be a pilot."
+
+Greg nodded. "I have a Cherokee 140 but I park it over in Caldwell. Tripp never had an interest in flying, but Joshua's been a pilot like his dad, since he was 16. He owns his father's old Cessna 120. Beautiful bird. You like flying?"
+
+"Nope. But my youngest loves it. So he'll probably want to get his license before long."
+
+Greg smiled knowingly. "It's a great skill to have. When he's ready, have him contact me. I know lots of area instructors."
+
+Plait glanced to his left and looked out over the refueling area where a white, fours seat low wing aircraft was parked. Greg noticed where he was looking. "That's my bird. Getting a bit long in the tooth, but then, so am I."
+
+"Mr. Thomas,"
+
+"Greg."
+
+"Greg, does Josephine know you are her father?"
+
+Greg stared back at him with dead steady gray eyes. "No. I'd like to keep it that way, if you don't mind."
+
+Plait sensed something was a bit off in his tone but nodded anyway. "Will do."
+
+
+## Chapter 11
+
+Start.
+
