@@ -101,7 +101,7 @@ Plait looked out his side window across the street to a lot near the Ten Barrel 
 
 The kid’s Ford had sun faded paint, worn tires and the upholstery was ripped from in places from heavy use. There were lots of fast food wrappers and bags on the floor of the passenger seat, but nothing of obvious value visible from outside.
 
-“Okay, call it in and have it towed back to the station. Let’s run it and see what we get.”
+“Okay, call it in and have it towed back to the station. Let’s rLindskoogun it and see what we get.”
 
 Sergeant McReed nodded and keyed the mic of her radio from where it was clipped to her collar as they headed back to her cruiser to run the plates. Computers in squad cars always seemed to impress Plait more than it should. A child of the late seventies, he well remembered his dad’s squad car having nothing but a two way radio inside. Cell phones? Not even a pipe dream. His dad had a cigarette tray full of quarters for making calls.
 
@@ -1464,7 +1464,7 @@ Plait picked up on the guarded tone to his voice. "Bill Plait, thanks for meetin
 
 Greg guided him over to the door that led into the air conditioned restaurant.  "I have a table inside, where it's cool."
 
-The Tower Grill was owned by a tall, thin man with a full, trimmed beard and a crew cut named Nate. He served classic American food with a homemade flare that the locals loved and pilots flocked to eat at from all over Idaho. There were various authentic airplane inspired art and propellers hanging from the walls around hand strewn wood tables. Plait immediately felt at home there, despite not really being that interested in flying. He'd taken his family to the air museum at the other end of the road a few times over the years. His youngest loved airplanes and wanted to be a pilot someday.
+The Tower Grill was owned by a tall, thin man with a full, trimmed beard and a crew cut named Nate Lindskoog. He served classic American food with a homemade flare that the locals loved and pilots flocked to eat from all over Idaho. There were various authentic airplane inspired art and propellers hanging from the walls around hand strewn wood tables. Plait immediately felt at home there, despite not really being that interested in flying. He'd taken his family to the air museum at the other end of the road a few times over the years. His youngest loved airplanes and wanted to be a pilot someday.
 
 "Sorry if I startled you on the phone, but I thought it best that we talk in private," Plait said after they ordered burgers and cokes.
 
@@ -1518,18 +1518,53 @@ Greg smiled knowingly. "It's a great skill to have. When he's ready, have him co
 
 Plait glanced to his left and looked out over the refueling area where a white, fours seat low wing aircraft was parked. Greg noticed where he was looking. "That's my bird. Getting a bit long in the tooth, but then, so am I."
 
-"Mr. Thomas,"
+"Mr. Thomas," Plait started.
 
 "Greg."
 
 "Greg, does Josephine know you are her father?"
 
-Greg stared back at him with dead steady gray eyes. "No. I'd like to keep it that way, if you don't mind."
+Greg stared back at him with steady gray eyes. "No. I'd like to keep it that way, if you don't mind."
 
 Plait sensed something was a bit off in his tone but nodded anyway. "Will do."
 
 
 ## Chapter 11
 
-Start.
+Back at his desk before the late afternoon traffic got bad, Plait sketched a relationship chart on a legal pad. He liked to doodle with his pen on paper to collect his thoughts. So far the relationship between three of the gamers was the most interesting thing he found. His database searches on the remaining members came up empty. He checked his watch and wondered if the murderer would strike again tonight. 
+
+Friday night and then Sunday night suggested an every other night pattern, but he wasn't so sure it was a pattern yet. He needed some lab results and nothing had come down yet. Picking up his land line receiver he punched in the number for forensics. Doctor Smiley answered and Plait tried not to grin at his name.
+
+"Smiley," the man said in a gruff voice, hoarse from smoking too many cigarettes.
+
+"Hey Stew, this is Bill. Got anything dirt for me?" The pun wasn't very good but he knew it would annoy Stew, so it was worth saying.
+
+"Funny. Both samples, minus the Fritos are from the same location. In fact, they match better than any two samples I've ever ran. You sure you're not fucking with me?"
+
+"No, I'm not. Thanks, buddy," Plait said, hanging up before Stew sucked him into a boring conversation about all the different varieties of sandstone. 
+
+Next he called the Medical Examiner to see if the knife wounds were identical on both victims. 
+
+"Bob, it's Bill. What can you tell me about the murder weapon on the second body?"
+
+Bob rustled some papers and twisted around in a squeaky chair. "Well, it was a kitchen knife, probably a twelve inch one, thin blade. "
+
+"So same as the kid in the alley."
+
+Bob snorted and then said, "Yup. Even the stab pattern is similar. First a blow to the jugular and then nine stabs for good measure."
+
+Plait knew stabbings were one of the most intimate and brutal ways to kill a person. Soldiers were trained to use a bayonet on their enemies and even then some refused to engage when literally face to face with the enemy. Only an incredibly angry person bent on revenge could do it. Or a psychopath. His mind lingered on the last possibility as Bob breathed on the other end of the phone.
+
+"Thanks, Bob," Plait finally said, putting the phone down.
+
+Whenever faced with a serial killer people tended to think it was a wacko of some kind. Normal people didn't kill, thankfully. That leaves the wronged and the mentally disturbed. Plait knew everyone had a reason to not be happy with Van after he ended the game. Based on his interviews with the team after the first kid was killed, everybody loved seemed to love the guy, so it didn't seem anger or hate was a factor.
+
+Plait looked back at the list of gamers. Steve Lancy was his next target to take a closer look at. The guy was a member of several gun rights groups and seemed to be all over Facebook and Twitter with typical Right Wing conspiracy bullshit. 
+
+
+
+
+
+
+
 
