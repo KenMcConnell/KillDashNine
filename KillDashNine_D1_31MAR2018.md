@@ -1559,7 +1559,23 @@ Plait knew stabbings were one of the most intimate and brutal ways to kill a per
 
 Whenever faced with a serial killer people tended to think it was a wacko of some kind. Normal people didn't kill, thankfully. That leaves the wronged and the mentally disturbed. Plait knew everyone had a reason to not be happy with Van after he ended the game. Based on his interviews with the team after the first kid was killed, everybody loved seemed to love the guy, so it didn't seem anger or hate was a factor.
 
-Plait looked back at the list of gamers. Steve Lancy was his next target to take a closer look at. The guy was a member of several gun rights groups and seemed to be all over Facebook and Twitter with typical Right Wing conspiracy bullshit. 
+Plait looked back at the list of gamers. Steve Lancy was his next target to take a closer look at. The guy was a member of several gun rights groups and seemed to be all over Facebook and Twitter with typical Right Wing conspiracy bullshit. Nothing illegal about having those views, especially in Idaho. During an employer search, he found out Dancia worked under Steve for about a year. Plait jotted that down in his notebook. You just never knew what would turn out to be a clue later on and the more odd connections he found like that, increased his odds of finding the killer.
+
+Dancia Rivers now worked for a start-up company located in downtown Boise, as a Database Administrator. No incidents there and no connections to any of the other members, deceased or living. She had finished school at Boise State and graduated near the top of her class. Smart girl. 
+
+Next up was Chris Boyd a grocery checker who worked for the Boise Co-Op. Nothing scary in his past work record, mostly low paying service jobs. Chris lived a few blocks north of the Co-Op in a tiny house that was willed to him after his mother passed away. Kid never ventured far from home, apparently. He had no arrest record and nothing more than a Facebook account on-line. Plait wondered if he should try and get a search warrant to check everyone's ISP logs but at the moment, he had no real suspect or motive.
+
+The last member of the group was a bit older than the rest of them. His name was Pete Kasinovich and he worked as a bartender at the Neurolux lounge over on eleventh street. A couple of minor arrests for disturbing the peace and a DUI when he was in his twenties. Been clean for over a decade with no recent arrests. Plays electric guitar for a Jazz band that sometimes played at the lounge. Plait raised his eyebrow at that last item. He enjoyed Jazz music and wondered if the dude was any good.
+
+There were no other connections either in work history or arrest records for Chris and Pete. At the end of the day, Plait had no real leads other than the weird connection between Trip, Joshua and Jo. He decided to contact Joshua Jones and arrange to meet with him to ask a few more questions. 
+
+// ----------------------- //
+
+Joshua pulled his silver Porsche 356 convertible into an open spot at the Boise Police Department offices off of Emerald. It was a nondescript office park that nobody would mistake for city police station. Plait was loitering in the front lobby waiting for him.
+
+"Thanks for coming out," Plait said, shaking hands with Joshua.
+
+Joshua followed Plait outside and around to a shaded area with park benches. They sat down and Plait spoke in his best friendly cop manner.  "Joshua, I did some searching today on the members of your gaming group and I found something curious. I know "
 
 
 
