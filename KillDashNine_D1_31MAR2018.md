@@ -17,9 +17,9 @@ But this night was different than all the others. For one thing, he was pretty n
 
 Dizzy from the beer and feeling jaded by the game, he left Mashers and headed out into the night for his usual homeward trek through the heart of the city. Teddy was a big man and he was no where near being too drunk to drive, at least that what he convinced himself. The others knew when he’d had too much to drink and they didn’t even try to stop him from leaving.
 
-Maybe that beer was more toxic than Steve had admitted. He found his feet getting heavier and heavier as he stomped through the puddles in the alley. He stopped before Melina’s painting and waited patiently for it to stop moving as if it were animated. Could you animate a wall painting? He watched the colorful clowns dance around for a while and then realized he really was more shit-faced than he thought.
+Maybe that beer was more toxic than Steve had admitted. He found his feet getting heavier and heavier as he stomped through the puddles in the alley. He stopped before Melina’s painting and waited patiently for it to stop moving as if it were animated. Could you animate a wall painting? A song echoed down the alley as if booming from a portable speaker. It was Roy Orbison's _In Dreams_. Teddy watched the colorful clowns dance around for a while and then realized he really was more shit-faced than he thought. He felt as if he were tripping on more than just beer.
 
-Teddy decided to linger in the alley and check out more of the paintings to see how they looked in motion. His large frame lumbered along a few more steps before something tripped him and he fell flat onto his belly. The pavement smacked his face as his head bounced off of it. He felt something sharp enter his neck and realized too late that there was someone on top of him. The alcohol delayed his senses just long enough to make him wonder where all the blood was coming from. He realized that he could taste it now with his mouth pressed against the ground. More sharp stings around his waist convinced him he was under attack. Trying to roll his frame over he was kicked in the head and nearly passed out.
+Teddy lingered in the alley and check out more of the paintings to see how they looked in motion. His large frame lumbered along a few more steps before something tripped him and he fell flat onto his belly. The pavement smacked his face as his head bounced off of it. He felt something sharp enter his neck and realized too late that there was someone on top of him. The alcohol delayed his senses just long enough to make him wonder where all the blood was coming from. He realized that he could taste it now with his mouth pressed against the ground. More sharp stings around his waist convinced him he was under attack. Trying to roll his frame over he was kicked in the head and nearly passed out.
 
 The last thing he heard were wet footsteps running down the alley. His vision faded like one of those old black and white movies that Trip was always making him watch. Teddy slowly lost consciousness and faded out, forever.
 
@@ -1575,7 +1575,30 @@ Joshua pulled his silver Porsche 356 convertible into an open spot at the Boise 
 
 "Thanks for coming out," Plait said, shaking hands with Joshua.
 
-Joshua followed Plait outside and around to a shaded area with park benches. They sat down and Plait spoke in his best friendly cop manner.  "Joshua, I did some searching today on the members of your gaming group and I found something curious. I know "
+Joshua followed Plait outside and around to a shaded area with park benches. They sat down and Plait spoke in his best friendly cop manner.  "I did some searching today on the members of your gaming group and I found something curious."
+
+Joshua was all ears as he leaned in to hear better over the sound of air conditioners grinding away nearby.
+
+"Apparently your father and Tripp's father were both involved in some kind of super secret government project around the time you both were born. Do you know what that might be about?"
+
+Joshua felt a headache coming on. He used to get really bad migraines regularly but in the past year they had occurred much less frequently. He also didn't normally get them until late at night. Maybe he was jut reacting to what the detective was asking. 
+
+"My parents died in that car crash when I was a teenager. Taggert told me he had rigged the car to crash, but you left me the Police report on the brakes. It said there was nothing wrong with the brakes. I don't know what to make of that anymore. But I don't know anything about Tripp's dad or my dad being involved in anything together."
+
+Plait studied the kid's face for a moment before continuing. His brow was creased like someone who had a headache. "Jo and Tripp are fraternal twins. Different mothers, same father. Greg Thomas was involved with some kind of hush, hush government project but I have no idea what was it was about. I suspect that your father might be involved. If I were you, I'd ask Greg what he knows. I think it could help you rest a little easier about how your parents died."
+
+Joshua sat back and put a hand on his forehead. He looked back at Plait with confusion. Plait seemed like he didn't have anything else to say. It was like finding out your dad was a secret agent or Indiana Jones or something. Joshua just couldn't process any of it. He stood up and started to excuse himself.
+
+"I promised Greg I wouldn't let Jo know he was her father. Can you please keep that between the two of us?"
+
+Joshua nodded absently as he walked away back to his car. Plaint watching him get in and back out before going back inside to press on with his research. He wasn't sure he had done the right thing but he felt the kid deserved to know the truth about his parents. No matter how insane that truth might turn out to be.
+
+
+## Chapter 12
+
+
+
+
 
 
 
