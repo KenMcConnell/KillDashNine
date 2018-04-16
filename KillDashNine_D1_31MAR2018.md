@@ -1305,19 +1305,19 @@ She stared at him like she had no idea who that was. He studied her for a moment
 
 She continued looking at him like he were crazy. "So?"
 
-"The victim was at that game.  I was informed by a mister Jones that you are new to the gamer team. You were the only person there he didn't know personally so he couldn't vouch for you."
+"The victim was at that game.  I was informed by a mister Joshua Jones that you are new to the gamer team. You were the only person there he didn't know personally so he couldn't vouch for you."
 
 She shook her head. "So that makes me the killer? You better do better than that, Colombo."
 
 Plait motioned to the driveway. "You're car is warm, have you been somewhere this evening?"
 
-Jo looked at him funny and then out to her car. "What? I haven't use it in days. " She opened the door further and stepped outside to walk barefoot over to her car. It was open and she looked inside for a moment before turning to Plait.
+Jo looked at him funny and then out to her car. "What? I haven't used it in days. " She opened the door further and stepped outside to walk barefoot over to her car. It was open and she looked inside for a moment before turning to Plait.
 
 "Nothing seems to be missing, but I don't normally keep anything in it."
 
 Plait took out his pocket flashlight and walked around the vehicle looking it over carefully. It had the usual signs of wear that most used cars sported, but nothing seemed out of place or suspicious. "Do you always keep it unlocked?" 
 
-Jo nodded sheepishly. "Look, I'm a free spirit, what can I say?"
+Jo nodded sheepishly. "There's nothing in it to steal."
 
 "I suggest you lock it or keep it inside the garage."
 
@@ -1327,7 +1327,7 @@ Jo nodded sheepishly. "Look, I'm a free spirit, what can I say?"
 
 Jo shook her head. "No, but it's not too hard to start him if you know what you're doing."
 
-Plait took out a business card and handed it to her. "I'm sorry to have disturbed you at this hour, Ms Connor. Please feel free to contact me if you have any questions. I may be in touch with further questions at a later date."
+Plait did his best to ignore the comment and took out a business card and handed it to her. "I'm sorry to have disturbed you at this hour, Ms Thomas. Please feel free to contact me if you have any questions. I may be in touch with further questions at a later date."
 
 Jo took the card and gave him a weak smile before heading back inside. Plait waited for her to go inside and listened for the door being locked before heading back to his car. It was going to be a long day ahead. He had to run a background check on everyone in that game and see what connections he could find between the players. This young woman didn't seem to be a cold blooded killer but that certainly didn't rule her out as a suspect. At lease not yet. 
 
@@ -1379,7 +1379,7 @@ Joshua was starting to wonder that himself. He certainly didn't come expecting t
 
 "Dancia said you were working on some kind of VR game that really impressed her. I wanted to see if for myself. I tried to contact you online but we didn't have your email or phone number."
 
-"Some detective sure as hell found me this morning. Apparently one of your gamers was killed last night? I think he thought I was somehow involved because I played that game with you guys yesterday."You
+"Some detective sure as hell found me this morning. Apparently one of your gamers was killed last night? I think he thought I was somehow involved because I played that game with you guys yesterday."
 
 Joshua stared back at her for a moment. She didn't exactly sound like a stone hardened killer, more like she had no idea why Plait would have shown up at her door. He wondered if she were naked then too? He caught himself and redirected his thoughts. "The reason we had an opening on the team was because another member was killed."
 
@@ -1591,10 +1591,97 @@ Joshua sat back and put a hand on his forehead. He looked back at Plait with con
 
 "I promised Greg I wouldn't let Jo know he was her father. Can you please keep that between the two of us?"
 
-Joshua nodded absently as he walked away back to his car. Plaint watching him get in and back out before going back inside to press on with his research. He wasn't sure he had done the right thing but he felt the kid deserved to know the truth about his parents. No matter how insane that truth might turn out to be.
+Joshua nodded absently as he walked away back to his car. Plait watching him get in and back out before going back inside to press on with his research. He wasn't sure he had done the right thing but he felt the kid deserved to know the truth about his parents. No matter how insane that truth might turn out to be.
 
 
 ## Chapter 12
+
+Joshua parked his car and walked to entrance of his condo, still in thinking about what Plait had told him about his dad.  He just wanted to be alone for a while to think about it but standing in front of the breezeway was the last person he wanted to see right now.
+
+"Hey, " Jo said as he approached.
+
+He knew better than to ask her how she found him, she was definitely not  internet challenged. She was wearing a t-shirt, torn blue jean shorts and no shoes. A small purse with a spaghetti strap rested loosely off her shoulder.
+
+"I wanted to talk, if you don't mind."
+
+Joshua ran his card past the reader and opened the door for her. She walked inside the entrance and waited for him to unlock his door. The light was dim in the entrance hall but he could see the way she was looking at him and he knew something was wrong. 
+
+Jo walked across the living room of his condo and stood before the floor to ceiling window that faced north. Back lit, from the bright daylight her blonde hair glowed.  Joshua plopped down in one of his leather chairs and waited for her to say something. 
+
+"I'm sorry if my nudity intimidated you before. I've always been a bit of a free spirit."
+
+"It was your home, and I did drop by unexpected. No worries."
+
+She turned to look back at him and smiled coyly. He relaxed a bit feeling the tension between them ease. 
+
+"Look, I'm not a killer. I don't know anyone in your gamer group and Saturday was the first day I had ever been to that arcade. I just didn't want you and Dancia thinking I was some kind of wacko."
+
+Joshua shook his head. "We don't think you're the killer, promise."
+
+He smiled at her and she pulled out several devices from her purse that looked like Go-Pro's on tiny tripods. She put one against the wall on the kitchen counter and the other one across the room on a window sill. Each device seemed to have a lens that scanned the room with a blinking red LED.
+
+"What are those?"
+
+"I call them posts, as in fence posts. They're passive, trust me."
+
+Then she pulled a small device he thought was her phone from the waistband of her jean shorts. It was thicker than most phones and she pulled out a portable keyboard and snapped the device into it and placed it on the kitchen counter that faced the living room. She started typing on the keyboard and he came over to see what she was doing.
+
+"This is my portable Pi. Full Raspbian OS, tiny form factor, WiFi of course."
+
+Joshua was intrigued. He knew the Raspberry Pi's were tiny Linux computers, but had never seen one so small before. She told him to take out his phone and go to a short URL. He pulled out his Samsung and complied. An app started to download on his phone. "Hey, ah."
+
+"Relax, tiger. I'm not a hacker. It's the client to my VR game."
+
+Joshua let the client load and then turned it on. Jo pulled out a cardboard device from her back pocket, unfolded it and stuck his phone inside. Then she handed him the old Google inspired headset. He put it on and was astonished to see a virtual version of his condo. He turned his head around  and saw the entire room. Putting up his hand, he saw it replicated by a much simpler avatar hand. There was a white flash beside him and he saw green text appear that said, "Player Two: JayZero, has entered the room."
+
+Joshua turned his head towards where Jo was standing and saw her avatar. It was like a low-rez version of her, even dressed in the same clothes. Her avatar smiled at him. "What do you think?" She said. He shook his head.
+
+"This is insane."
+
+"That's what Dancia said," Jo laughed.
+
+"How do you render my condo in real-time?"
+
+Her avatar motioned to the posts she had planted. They were even in the virtual version of the room. "They scan the room, render it using the game engine and then watch us for when we move. Whenever you move, it records you and translates it to the avatar."
+
+"That's dope."
+
+"I can change the virtual environment but right now it's running over my phone's connection, so it's kinds slow."
+
+Joshua moved across the room, touched the back of the couch and grabbed a pillow. It stuck in his virtual hand just like his real hand. He tossed it to the leather chair and the virtual pillow hit the chair and bounced off of it to land on the floor. The lag was about a half second from the real event. Impressive as hell.
+
+"This shit is amazing, Jo. Did you develop it yourself?"
+
+He looked back at her avatar that shrugged. Joshua pulled off his headset and stared at her. She wasn't wearing a headset, just looked at him expectantly.
+
+"The graphics are modest, but the real-time interaction is amazing. Especially the reality mapping feature."
+
+"It looks better over a faster connection, but there's still some lag. I mean it takes some time to recreate what you're doing on the fly."
+
+Joshua came back to the counter and set his phone down. He motioned to the Pi device. "You're not running it on that thing, are you?"
+
+"Oh, hell no. It's just running a secure shell into my servers in the cloud."
+
+Joshua looked back at her with a new respect in his blue eyes. "Did you design the game engine?"
+
+Jo nodded. "It's basically the old Doom engine, modified. I didn't have time to recreate the whole thing, so I used the open source base and just extended it with my own features."
+
+"I can't think of any real world applications, though."
+
+She made a pout face, "Any room you place two posts in, becomes a room in the game and everything in the room is an object in the game."
+
+Joshua's mind started reeling with the possibilities. "I'm starting to get the idea now."
+
+She winked slyly at him. "I have it attached to a dildo at home and now I can screw anyone I can scan. That alone is worth a fortune on Pornhub, don't you think?"
+
+Joshua wondered if she would now use his image and was both excited and creeped out all at once. He shook his head to clear his impure thoughts. "Have you contacted any companies about this yet?"
+
+She shook her head and started retrieving her posts. "I'm not ready to sell it yet. But I do need to test it with more players. Do you think the group would be interested in helping me?"
+
+
+
+
+
 
 
 
