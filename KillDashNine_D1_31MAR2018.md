@@ -1664,20 +1664,86 @@ Joshua came back to the counter and set his phone down. He motioned to the Pi de
 
 Joshua looked back at her with a new respect in his blue eyes. "Did you design the game engine?"
 
-Jo nodded. "It's basically the old Doom engine, modified. I didn't have time to recreate the whole thing, so I used the open source base and just extended it with my own features."
+Jo shook her head. "It's basically the old Doom engine, modified. I didn't have time to recreate the whole thing, so I used the open source base and just extended it with my own features."
 
-"I can't think of any real world applications, though."
+"I can't think of any real world applications, though," Joshua said.
 
 She made a pout face, "Any room you place two posts in, becomes a room in the game and everything in the room is an object in the game."
 
-Joshua's mind started reeling with the possibilities. "I'm starting to get the idea now."
+Joshua's mind started reeling with the possibilities. "I'm starting to get it now."
 
-She winked slyly at him. "I have it attached to a dildo at home and now I can screw anyone I can scan. That alone is worth a fortune on Pornhub, don't you think?"
+She winked slyly at him. "I have it attached to a dildo at home and now I can screw anyone I scan. That alone is worth a fortune on Pornhub, don't you think?"
 
 Joshua wondered if she would now use his image and was both excited and creeped out all at once. He shook his head to clear his impure thoughts. "Have you contacted any companies about this yet?"
 
-She shook her head and started retrieving her posts. "I'm not ready to sell it yet. But I do need to test it with more players. Do you think the group would be interested in helping me?"
+She shook her head once and started retrieving her posts. "I'm not ready to sell it yet. But I do need to test it with more players. Do you think the group would be interested in helping me?"
 
+"Phsshh, yeah."
+
+In all the excitement he had forgotten that two of his friends were dead. When that thought returned he succumbed to the moribund feeling he'd had inside ever since Teddy had died. His headache started to pound again, no doubt because of the VR program.
+
+"Can you play it on a PC or do you have to wear the headset?"
+
+She looked at him blankly. "It's a VR program."
+
+"Right."
+
+"Do you have an Apple client, or only Android."
+
+She got that sublime look on her face again. "Apple?"
+
+Joshua's respect for her increased in that moment. There has always been a schism between programmers, since the dawn of time. You either accepted closed source code and platforms, or you rebelled against them. There was no in-between ground. Jo was definitely a rebel in the software wars.
+
+"We could play this at Mashers, maybe use Nate's upstairs apartment as more levels. But what would the game be? I mean some kind of mystery or a quest for a hidden object?  Maybe we could hide something and you have to find it wearing your phone?"
+
+Jo was tracking him and she held up a finger. "That detective thinks someone in your gamer group is the killer. Maybe we make it a real-time game of Clue?"
+
+Joshua got another jolt of excitement that left the hairs on his arms standing up and his headache faded into the background of his mind. He imagined everyone walking around Nate's apartment, asking questions and confronting each other like amateur Sherlock's. That might not go over so well and what would stop the real killer from attacking someone again? After a moment or two of thinking it through, he had all but ruled it out.
+
+"What if the killer felt pressure to lash out? Then someone else might get hurt or killed. Seems like a bad idea."
+
+Jo agreed with him as she logged out of her tiny computer and returned it to her purse. "I can make the virtual room look like anything we want. I mean, we could change the setting to be the Enterprise or wherever."
+
+"Really? But then when you picked up an object it would still be just a pillow in the game, right?"
+
+Jo considered the question for a moment. He could almost see her looping over the options in her head. "It would take some effort, but I could use stock images to convert a pillow into a tricorder or a phaser."
+
+Both of them laughed at the absurdity of holding a pillow and making pew, pew noises with it at someone. The idea was solid, it just seemed silly to them. 
+
+"I like the quest idea. I could hide a digital only object somewhere in the game levels and you could only find it virtually. That way you have to keep your phone visor on."
+
+"But wouldn't they walk into walls, walking around with their eyes covered?"
+
+She tapped the side of her head with a finger. "Real-time imagery, dude. The posts are pretty accurate and can alert you to doorways and stairs. Although walking up stairs might be kinda trippy," she said with a smile at her own pun.
+
+Joshua tapped the counter top. "I like it. Let's do it. Can you have it ready to go tonight?"
+
+"Sure. I'll bring enough posts to cover his whole apartment and the Mashers. We could even do the yard around the house. I have like twenty of those things already made."
+
+Joshua felt his anxiety lifting as he smiled at Jo's crystal blue eyes. He'd never been all that attracted to girls with blue eyes before, probably because he saw them everyday in the mirror. But she was undeniably hot and at that moment, completely attractive to him in her t-shirt and torn shorts. 
+
+"Well, I better get back home and get to work. What time do you want to have everyone meet at Mashers?"
+
+Joshua didn't really hear her. He was looking at the freckles across the bridge of her nose and remembering what she looked like naked. She waved her hand in front of his face and he snapped out of it.
+
+"What time?"
+
+"Oh, ah. Let's make it nine."
+
+She smiled at him and headed back to his front door. He watched her walk with that classic female sway to her hips. _Damn. She's Tripp's sister, man. Stop eye balling her!_
+
+He walked her back out to the parking garage and waved goodbye as she climbed into her blue Cruiser. Then he went back inside and started contacting everyone in the group.
+
+
+## Chapter 13
+
+Detective Plait leaned into his monitor and focused on the old police report. It was the summary conclusion from the death of Nate's mother. She was initially stabbed in the parking lot of the Rite Aid on State street. But she managed to get away from her attacker and walked across State and into an alley between Rainbow Books and DK Donuts before collapsing and dieing. There was no video surveillance at the Rite Aid parking lot, but a clerk remembered seeing her leave there minutes before her alleged attacker struck.
+
+She drove down State and pulled into a paved area between the bookstore and the donut shop and stopped. Her car door was left open and her body was found on 13th Street less than five hundred feet away in the grassy front yard of a house behind the donut shop. The detective in charge noted that it had all the earmarks of a botched assault and the fact that she even managed to get to where she was before passing out from loss of blood was impressive to him.
+
+Plait backed his way through the report and then skipped to the associated Coroner's report. His mother's body was stabbed multiple times by a large kitchen knife, not a pocket knife. It was the opinion of the County Coroner that she was stabbed at least three times at the Rite Aid and then stabbed six more times in the alley or at some point between her car and where she was found. 
+
+It sounded like she was hunted down and purposely killed, not the random victim of a petty criminal looking for cash or credit cards. The entire crime was brutal and merciless. A crime of passion.
 
 
 
