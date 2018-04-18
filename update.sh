@@ -1,5 +1,8 @@
 
+#! /bin/sh
 
-git commit "Daily update."
+OUTPUT="(cat KillDashNine_D1_31MAR2018.txt | wc -w)"
+p=250
 
-wc -w >> WordCount.txt
+expr $((w / p))
+echo $expr
