@@ -1745,6 +1745,126 @@ Plait backed his way through the report and then skipped to the associated Coron
 
 It sounded like she was hunted down and purposely killed, not the random victim of a petty criminal looking for cash or credit cards. The entire crime was brutal and merciless. A crime of passion.
 
+Plait sat back and circled Nate Richard's name on his list.  The only other name on his list that was circled was Jo's.
+
+// ----------------------- //
+
+Dancia stopped by Melina's apartment on her way home from work to check on her friend. Melina seemed normal, hands covered in artist's chalk again from one of her drawings. There was a black smudge across her nose where she no doubt rubbed it while she was drawing. Her hair was pinned up messily and she was wearing black tights and a black tank top. 
+
+The windows were open and a light breeze filtered in from the street below. She was listening to an old Black Keys CD on her stereo.  
+
+"Hey kiddo, thought I'd stop by and see how you were doing," Dancia said.
+
+Melina's face didn't have her usual brightness about it but she didn't look like she was depressed or anything. "I'm fine, just working on some doodles."
+
+She walked back to her easel and picked up a piece of black chalk, flipped it around in her hand and then started sketching. Dancia followed her over to see what she was drawing. It was a woman with shoulder length hair bent over her skateboard, wearing torn jean shorts. Dancia stared at it for a moment, wondering who it was. She looked similar to the woman that Melina had been drawing over and over on a skateboard. Something about the board or the woman's hair nagged at Dancia's brain.
+
+She turned around and looked at the wall where Melina had hung up her favorite sketches. Many of them were this same woman, but none of them showed her face in any detail. Except for one. An older one from a few years before that Dancia had seen many times before. It was a portrait done in pencil, not chalk. The woman's face was striking and suddenly Dancia realize who it was. 
+
+"Jo."
+
+"What?" Melina asked, turning to see what Dancia was looking at.
+
+"That's Jo," Dancia said, pointing at the woman with freckles across the bridge of her beautiful face.
+
+"You know her?"
+
+"Yeah, we just met this weekend. She's a game developer."
+
+Melina put down her chalk and grabbed Dancia by her shoulders to spin her around. "You have to introduce me to her. She's my muse!"
+
+Dancia smiled hesitantly.  "I don't think she's, you know."
+
+"Gay."
+
+Dancia nodded sheepishly but it didn't seem to damper Melina's enthusiasm. "What's her last name?"
+
+"I, I don't know. She's taken Teddy's place on our team." Dancia squinted after blurting out that last bit. But once again, it didn't seem to bother her friend.
+
+"So she's a coding nerd, like you?" Melina asked.
+
+"Actually, she's more like some kind of programming genius."
+
+Melina grabbed Dancia's hand and pulled to to the couch to talk. "Genius, huh. Do tell."
+
+Dancia was still hesitant to say much else, afraid that Melina had already suffered a hard crush and didn't need encouragement. "She's invented this freaking cool VR game. Actually, we're getting together tonight at Mashers to play it tonight."
+
+"Can I come? I just want to meet her. Maybe get her to sign a release so I can show off my drawings of her. Oh God, what if she won't sign it?"
+
+Dancia shook her head, "I think she'd give you permission, they're gorgeous likenesses." 
+
+"Thanks, girlfriend. Is she as pretty up close as she looks from across a room? Damn, she's fine."
+
+"Yes. She's very pretty. Annoyingly so, actually. I couldn't even tell that she was wearing any makeup. You know how some women just look naturally stunning?"
+
+Melina's eyes rolled and she almost squealed with glee. Then she looked back at Dancia suspiciously. "You're just fucking with me, aren't you?"
+
+Dancia laughed. "Maybe a little." 
+
+"Bitch!" Melina said jokingly, slapping Dancia's knee as she got up and headed for the kitchenette. 
+
+"Ice tea?"
+
+"Sure. Thanks."
+
+Dancia looked back at the drawing on the wall and wondered how Jo was going to handle Melina's enthusiastic and heart felt affection. A part of her knew that it might not work out so well for her friend.
+
+// ----------------------- //
+
+(Joshua meeting up with Pete on his way to work. He can't get get off to make the game. He's the only member who can't make it. Joshua then calls Plait and tells him they are playing a game tonight at Mashers and everyone will be there except for Pete. Plait thanks him for the tip and doesn't sound too interested in stopping by. Then Plait arranges to stake out Mashers that night. He thinks the killer might strike as folks are going home and intends to have everyone followed by beat cops.)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
