@@ -1811,7 +1811,63 @@ Dancia looked back at the drawing on the wall and wondered how Jo was going to h
 
 // ----------------------- //
 
-(Joshua meeting up with Pete on his way to work. He can't get get off to make the game. He's the only member who can't make it. Joshua then calls Plait and tells him they are playing a game tonight at Mashers and everyone will be there except for Pete. Plait thanks him for the tip and doesn't sound too interested in stopping by. Then Plait arranges to stake out Mashers that night. He thinks the killer might strike as folks are going home and intends to have everyone followed by beat cops.)
+Joshua was unable to raise Pete on his cell and decided to swing by his apartment complex to ask him he wanted to join them. Just as he was pulling up to the CW Moore building a flat black 1975 Corvette slid out and stopped as their cars met. Pete had his windows down and the t-bars off and his car idled like a Harley Davidson. It was louder than Joshua's Porsche but not loud enough to annoy non-car people.
+
+"Hey, we have a game tonight at Mashers. You available?" Joshua asked.
+
+"Just heading out for a gig. Sorry, man."
+
+"Where you playing tonight?"
+
+Pete caressed the short brim of his gray hipster hat out of habit. "Neurolux."
+
+Joshua nodded. "Cool. Catch you later, man."
+
+Pete reached out and fist bumped Joshua as he pulled away out onto the street. Joshua backed out and then started thinking he should tell Detective Plait about the game, just to see if he wanted to watch or something. He pulled his 356 into a street parking spot and dialed the Boise PD. 
+
+"Hi, this is Joshua Jones. I thought you should know the team's getting together for a game tonight at Mashers. We start at nine."
+
+"Is everyone attending?" Plait asked.
+
+"Everyone except Pete. He's got a gig at the Neurolux."
+
+Plait didn't respond right away and Joshua started to think the connection was dropped. When he did speak he sounded bored or uninterested.  "Okay, thanks for keeping me in the loop. Goodbye."
+
+Joshua tossed the phone onto the passenger seat and pulled into traffic heading to Dancia's apartment.
+
+// ----------------------- //
+
+(Plait arranges to stake out Mashers that night. He thinks the killer might strike as folks are going home and intends to have everyone followed by beat cops.)
+
+## Chapter 14
+
+Dancia lived in a stone apartment on the lower east side of Boise. Joshua climbed the steps to the second story and knocked on her door. Melina answered and laughed as Joshua seemed surprised to see her. She had cleaned up and was wearing an off the shoulder top and jean shorts, her hair braided in two tails .
+
+"Hey, Jones. Do you mind if I attend the game?" Melina asked as she let him inside. 
+
+Joshua slid past her and nodded his consent. "Sure, but you don't like to game."
+
+"She's not there to game," Dancia said from her bedroom. Joshua's face scrunched as he turned to Melina. 
+
+"I'm there to meet Jo," Melina said, her face beaming.
+
+"Ah, I'm not to sure she's,"
+
+"I don't care if she's a breeder. I just want to meet my muse." She pointed to one of her drawings that Dancia had framed on the wall. It was a charcoal sketch of a woman that could have been Jo or any other gorgeous blonde on a skateboard. 
+
+Joshua nodded and mustered a smile as Dancia came into the room and immediately hugged and kissed him. Melina made a gag face and went into the kitchen area to grab a water bottle.
+
+"So Pete has a gig tonight, he won't be there."
+
+Dancia pouted. "Damn. I'll miss him."
+
+"Does this mean you'll be short a player?" Melina asked.
+
+"We're not playing a regular tournament. We're going to be playing Jo's VR game," Joshua replied. Dancia's eyes got big. "No, way!"
+
+"Way. Don't forget your cells."
+
+// ----------------------- //
 
 
 
