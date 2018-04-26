@@ -1843,15 +1843,15 @@ Joshua tossed the phone onto the passenger seat and pulled into traffic heading 
 
 Dancia lived in a stone apartment on the lower east side of Boise. Joshua climbed the steps to the second story and knocked on her door. Melina answered and laughed as Joshua seemed surprised to see her. She had cleaned up and was wearing an off the shoulder top and jean shorts, her hair braided in two tails .
 
-"Hey, Jones. Do you mind if I attend the game?" Melina asked as she let him inside. 
+"Hey, Jones. Do you mind if I attend the game tonight?" Melina asked as she let him inside. 
 
-Joshua slid past her and nodded his consent. "Sure, but you don't like to game."
+Joshua slid past her and nodded his consent. "Sure, but you don't like video games."
 
 "She's not there to game," Dancia said from her bedroom. Joshua's face scrunched as he turned to Melina. 
 
 "I'm there to meet Jo," Melina said, her face beaming.
 
-"Ah, I'm not to sure she's,"
+"Ah, I'm not to sure she's," his voice trailed off.
 
 "I don't care if she's a breeder. I just want to meet my muse." She pointed to one of her drawings that Dancia had framed on the wall. It was a charcoal sketch of a woman that could have been Jo or any other gorgeous blonde on a skateboard. 
 
@@ -1868,6 +1868,24 @@ Dancia pouted. "Damn. I'll miss him."
 "Way. Don't forget your cells."
 
 // ----------------------- //
+
+Joshua texted Plait about Melina but also said he didn't consider her a threat. Plait's one word reply was a canned response that his phone offered him. Joshua could tell that the detective was not very comfortable with modern technologies. The few times he had seen the man on his cell texting he used one finger and made many typos. Digitally native folks used their thumbs and just naturally seemed to go faster with fewer mistakes.
+
+People started arriving at Mashers some time after eight that evening. Cars were parked around the corner and up the driveway to the residence. Melina and Dancia took Melina's Mini. Dancia had to agree to get a ride home with her man, if for some reason Melina had to ditch early or in her words, "got lucky". _Wishful thinking_, Dancia thought.
+
+Steve's big black GMC truck took most of the narrow driveway and Tripp's Honda CRV, Joshua's Porsche and an older blue Toyota FJ with a white top were parked in the street. There were fewer cars than normal largely due to Teddy and Van being gone. Chris's bike was parked on the wrap around porch and tied to a pillar with a bike chain. He usually brought it inside with him, but for some reason hadn't done that this time.
+
+Nate's multicolored rust bucket bus was  not in the driveway but on the corner street. He probably had to run out for food or something last minute and didn't want to block the drive. The girls piled out of the Mini and took turns looking each other over to make sure the car ride hadn't altered their appearances any. It had not.
+
+"I'm suddenly really nervous, like when we were in High School," Melina said, her voice low and shakey.
+
+"Relax, girl. You look fine. Just don't come on too strong. Play it cool. You don't want to frighten her off."
+
+Melina looked nodded her head as they walked up the path to the front porch. Mashers had two front entrances, one was for the paying customers and one was for the residence above the arcade. It was a beautiful old stone home with a slightly Gothic upper floor complete with pointed roof and natural wood siding. The window and gutter trim were all painted black which when combined with the older style of the home lent it a slightly scary feeling, especially in the fall when the trees had no leaves. In the middle of summer though, it looked perfectly quint and interesting. There was a small wooden sign on the first floor that read Mashers Arcade in a black, 1970's era arcade font.
+
+Dancia always thought the sign was too inconspicuous and totally failed to market the place. But Nate didn't want it to be an eye sore and he was happy to exist on word of mouth from the local High Schoolers. As they knocked on the door, Dancia noticed someone had defaced the sign by adding Est 2006 with what looked like a black Sharpie. The hand writing looked like Nate's which seemed appropriate. 
+
+
 
 
 
