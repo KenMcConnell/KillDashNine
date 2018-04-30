@@ -1881,13 +1881,51 @@ Nate's multicolored rust bucket bus was  not in the driveway but on the corner s
 
 "Relax, girl. You look fine. Just don't come on too strong. Play it cool. You don't want to frighten her off."
 
-Melina looked nodded her head as they walked up the path to the front porch. Mashers had two front entrances, one was for the paying customers and one was for the residence above the arcade. It was a beautiful old stone home with a slightly Gothic upper floor complete with pointed roof and natural wood siding. The window and gutter trim were all painted black which when combined with the older style of the home lent it a slightly scary feeling, especially in the fall when the trees had no leaves. In the middle of summer though, it looked perfectly quint and interesting. There was a small wooden sign on the first floor that read Mashers Arcade in a black, 1970's era arcade font.
+Melina nodded her head as they walked up the path to the front porch. Mashers had two front entrances, one was for the paying customers and one was for the residence above the arcade. It was a beautiful old stone home with a slightly Gothic upper floor complete with pointed roof and natural wood siding. The window and gutter trim were all painted black which when combined with the older style of the home lent it a slightly scary feeling, especially in the fall when the trees had no leaves. In the middle of summer though, it looked perfectly quint and interesting. 
 
-Dancia always thought the sign was too inconspicuous and totally failed to market the place. But Nate didn't want it to be an eye sore and he was happy to exist on word of mouth from the local High Schoolers. As they knocked on the door, Dancia noticed someone had defaced the sign by adding Est 2006 with what looked like a black Sharpie. The hand writing looked like Nate's which seemed appropriate. 
+There was a small wooden sign on the first floor that read Mashers Arcade in a black, 1970's era arcade font. Dancia always thought the sign was too inconspicuous and totally failed to market the place. But Nate didn't want it to be an eye sore and he was happy to exist on word of mouth from the local High Schoolers. As they knocked on the door, Dancia noticed someone had defaced the sign by adding Est 2006 with what looked like a black Sharpie. The hand writing was Nate's which seemed appropriate. 
 
-Some changes for github.
+"Hey girls, come on in!" It was Chris, his bearded face accented by a friendly smile. He was holding a partially folded VR headset.
 
-More stuff for github test.
+"We the last to show?" Dancia asked, looking around the dark main room. People were mostly gathered around the table, cell phones out like ante's for a card game. Jo was at the far end of the table, folding visors for everyone's phone. 
+
+"I think so, Nate's upstairs. Have you met Jo? She's the hot blonde back there making VR headsets."
+
+Dancia smiled politely and pointed Melina to the table. She was fixated on Jo as they walked, already entranced with her beauty. Jo was wearing a simple t-shirt and a jean skirt and no shoes. All the guys were trying to get her to help them fold the simple design, just to be near her. Except for Steve. He had his own VR visor and was intently reading something on his laptop. Probably work related, knowing him. Dancia used to work with Steve at a small internet provider a few years ago. He was always doing work from home and at all hours of the night. He had no life then, and that probably hadn't changed today. She really didn't like the man and was happy to stop thinking about him before he got into her head like he always managed to do.
+
+Joshua had already folded two headsets and got up from the table to Dancia and Melina theirs. "Here, I've spared you the agony of having to wait for Jo to fold one for you."
+
+Dancia took one of them and made a face at Joshua. He looked puzzled until she pointed to Melina and then swing her head in Jo's direction. "I'll take one and you can use the other. Melina, why don't you get in line for one."
+
+Melina had already moved to the table as Dancia whispered what was going on to Joshua. He shrugged innocently, playing dumb in the way he always did in socially awkward situations. 
+
+"If everyone could find a seat around the table with your phone and the headgear, we'll get started," Jo said to the group.
+
+Melina waited behind Chris for her turn as Nate came down the stairs with two folding chairs. Nate smiled at her as he passed. She returned the smile briefly before regaining her focus on Jo. He popped them open and handed them to Joshua who found a spot for Melina and Dancia to sit at the table.
+
+"What's she doing here, she's not on the team?" Nate asked Joshua.
+
+"I think she just wanted to meet Jo," Joshua replied, raising his eyebrows suggestively.
+
+"Yes, she's quite the popular one tonight. Let's hope her game is worth it. I have things to do tomorrow before I open."
+
+"Dude, it's totally worth it. I've seen a demo. You'll love it."
+
+Nate seemed unimpressed, but then he wasn't a nerd and didn't understand any of the technology involved. Joshua knew enough to realize that Jo's toy had some real potential. He was even scheming about what it would take to create a startup to market it. Hopefully after the demo he could ask her if she was even interested in monetizing it. 
+
+Melina stuck her hand out awkwardly and said, "Hi, I'm Melina. Friend of Dancia's. Can I get one of those cardboard doohickeys, too?"
+
+Jo looked at her strangely for a second, not sure if Melina was completely basic or not. The girl seemed really into her though and she found that a bit disarming. "Sure, hun. You into gaming?"
+
+Melina cleared her throat. "No, actually. I'm an artist. I've seen you around. I hope you don't mind, but I think I've even drawn you a few times."
+
+Jo started folding up a headset and looked back at Melina. "Is that so?"
+
+"I'm not stalking you or anything, I just found you a very fun subject to sketch."
+Melina could tell she was probably weirding her out so she held up her iPhone and showed her a sketch she had done of her on her skate board. Jo looked at it closely for a second and then back to Melina. "You're pretty good."
+
+Melina shrugged as she took the headset form Jo. "Helps to have an enchanting subject."
+
 
 
 
