@@ -1947,7 +1947,9 @@ Joshua shook his head in disgust causing Tripp to look at him funny. "Don't man.
 
 Tripp looked at him funny then looked back at Jo who was doing the same lean over with Melina who was taking in the view herself and smiling like a kid in a candy shop. "Awe fuck man. You're serious."
 
-Joshua nodded as he patted his friend softly on his shoulder.
+Joshua nodded as he patted his friend softly on his shoulder as they walked back to the group.
+
+Jo moved back to her phone and then proceeded to show the group how to activate the app and then slide their phones into the cardboard holders. This process didn't take long and after a few simple questions, they all were plugged in and ready to experience the VR environment.
 
 
 
