@@ -1915,16 +1915,44 @@ Nate seemed unimpressed, but then he wasn't a nerd and didn't understand any of 
 
 Melina stuck her hand out awkwardly and said, "Hi, I'm Melina. Friend of Dancia's. Can I get one of those cardboard doohickeys, too?"
 
-Jo looked at her strangely for a second, not sure if Melina was completely basic or not. The girl seemed really into her though and she found that a bit disarming. "Sure, hun. You into gaming?"
+Jo looked at her strangely for a second, not sure if Melina was completely basic or not. The girl seemed really into her though and she found that a bit disarming. "Sure, hun. You a gamer?"
 
-Melina cleared her throat. "No, actually. I'm an artist. I've seen you around. I hope you don't mind, but I think I've even drawn you a few times."
+Melina cleared her throat. "No, actually. I'm an artist. I've seen you around town. I hope you don't mind, but I think I've even drawn you a few times."
 
 Jo started folding up a headset and looked back at Melina. "Is that so?"
 
 "I'm not stalking you or anything, I just found you a very fun subject to sketch."
+
 Melina could tell she was probably weirding her out so she held up her iPhone and showed her a sketch she had done of her on her skate board. Jo looked at it closely for a second and then back to Melina. "You're pretty good."
 
 Melina shrugged as she took the headset form Jo. "Helps to have an enchanting subject."
+
+Jo smiled and looked across the room at Dancia who looked as if she had released a shark into a tank of minnows. Dancia turned away, talking to Joshua and Jo handed Melina her headset. "Here you go, just slide your phone into there when we're ready to go."
+
+Melina took the device and thanked Jo as she moved away, holding her look until Jo turned to face the table. "Okay folks. I need you to go to this url and download the client app to play. If you have an iPhone, chose the Apple logo, if you have Android, click on the green robot.  Jayzero.org"
+
+"What if you're running Ubuntu?" Nate asked, a bit snidely.
+
+Jo was quick to respond, "Then you can't play."
+
+Nate acted like she had shot him and fell back dead in his chair. Everyone laughed as they downloaded the app and installed it on their phones. Jo walked around the table and made sure everyone found the link okay. Trip claimed he couldn't find the link, causing Jo to come lean over his shoulder affording him a clear shot of her boobs from her loose fitting top. He wasn't so dumb and winked over at Joshua after catching a peek. Joshua rolled his eyes, knowing he was checking out his own sister. He had to talk to Tripp soon, to keep him off of her.
+
+Joshua left his seat and his phone on the table and pulled Tripp away as Jo passed on to the next helpless victim, this time Melina. Joshua pulled Tripp back into the main room out of earshot from the table. Tripp shook him off and straightened his shirt. "What gives, man. I had a straight view of heaven back there."
+
+Joshua shook his head in disgust causing Tripp to look at him funny. "Don't man. Trust me, you don't want to chase her."
+
+"Why, what's wrong?"
+
+"She's not into guys," Joshua lied. It was the only thing that he could say that would cause Tripp to back off. Other than telling him the truth.
+
+Tripp looked at him funny then looked back at Jo who was doing the same lean over with Melina who was taking in the view herself and smiling like a kid in a candy shop. "Awe fuck man. You're serious."
+
+Joshua nodded as he patted his friend softly on his shoulder.
+
+
+
+
+
 
 
 
