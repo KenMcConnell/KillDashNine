@@ -1985,11 +1985,69 @@ Everyone clapped at the parlor game and Melina took a bow from her waist.
 
 Everyone groaned and a Nate hooted. 
 
-Jo reached out before her and started tapping buttons that magically appeared before her like in the movies. Joshua smiled under his headset. She was doing things exactly like he would. Their environment changed after a flicker and now they were all aboard some kind of starship. Not the sleek, comfortable kind of ships from Star Trek, but a dirty, grungy looking ship straight out of Alien. 
+Jo reached out before her and started tapping buttons that magically appeared before her like in the movies. Joshua smiled under his headset. She was doing things exactly like he would. It was like the Their environment changed after a flicker and now they were all aboard some kind of starship. Not the sleek, comfortable kind of ships from Star Trek, but a dirty, grungy looking ship straight out of Alien. 
 
-This drew excited cheers from just about everyone. It was like they were in a real world version of Halo. The table looked like it was from Firefly, wooden and beat to hell with a few computer terminals in the center. Joshua was again surprised at how freaking awesome the environment was. This could make game playing fun again for everyone.
+This drew excited cheers from just about everyone. It was like they were in a real world version of Halo. The table looked like it was from Firefly, wooden and beat to hell with a few computer terminals in the center. Joshua was again surprised at how freaking awesome the environment was. _This could make game playing fun again for everyone._
 
-"We are on the _Shooting Star_, an old freighter heading for a mining colony light years away from the inhabited sectors of the galaxy. "
+"We are on the _Shooting Star_, an old freighter heading for a mining colony light years away from the inhabited sectors of the galaxy. The hyperdrive has been deactivated. Someone has sabotaged the ship. You must either work as a team or individually to find out what was done to the ship. The ship looks suspiciously like Mashers in layout. We are on the bridge. The upstairs is the captain's quarters and the basement is Engineering. There are clues at every location to help you activate the hyperdrive. Oh, and you better do it quickly, as the ship's falling into the gravity well of a singularity."
+
+"What's a singularity?" Melina asked. Science was not her forte.
+
+Jo turned to her and said, "A black hole."
+
+"Ah, okay."
+
+"Are there any more questions?"
+
+Steve stood up and backed out of his chair. He managed to do it without wavering. "Let's do this, people!" He clapped his hands together and then rubbed them gleefully.
+
+
+## Chapter 15
+
+(Plait sends a beat cop to the bar to verify that Pete is there. Then he heads over to Mashers with Sergeant McReed each on a street that can see the arcade.)
+
+Trooper Davis parked her cruiser across the street from the Neurolux nightclub and surveyed the scene. People were filing in, laughing and smiling as the base sounds reverberated out into the street. She didn't like jazz and didn't have any idea what they were playing. She sighed and secured her vehicle before crossing the street. 
+
+"I'd like to speak to the manager please," she told the brawny doorman. He nodded with a smile and motioned to someone inside the club. Davis smiled politely to the folks showing their ID's to the doorman. She felt a little awkward standing there watching him do his job, as if he were somehow not doing it right. She stepped back and pretended to scan the streets for malfeasance or something.
+
+"Officer, I'm the manager. Brian Sanders."
+
+She turned to see the man dressed in a pressed shirt and tie with pleated pants. His hair was slicked back and short, almost like he had stepped out of a forties night club.  "There's no problem, sir. I was just told to verify that Pete Kasinovich was playing here tonight in the band."
+
+The manager looked at her oddly. "Of course he is. They are playing right now."
+
+"Do you mind if I verify? I won't be but a moment and I'm gone."
+
+Sanders looked around for a moment as if it were a huge incontinence. Trooper Davis was about to get mad if he didn't let her in. No night club wanted to upset the police, it tended to be bad for business. 
+
+"Can you come in the back way? I don't want to make a scene inside. You can see him play from back stage."
+
+Davis nodded. "That would be fine."
+
+"I'll meet you out back, officer," he said, pointing to her right.
+
+Sanders went back inside and Davis tipped her hat to the doorman and started around the side of the club. She called in to dispatch what she was doing, just to be safe. The back alley was well lit and only a few cars were parked nearby. One of them was a black vette that she recognized as being Pete's car. The plates matched what she was told. 
+
+The metal door popped open and Sanders let her enter. The music was much louder inside as he guided her to the side of the stage. She looked out into the red bathed stage and saw Pete Kasinovich playing his saxophone. He was dressed in a black suit with a gray, short brimmed fedora. Sanders looked back at her and Trooper Davis gave him a thumbs up. She was back in the alley not a minute later.
+
+_Easiest job of the night_, she thought as she made her way back to her cruiser. 
+
+// ----------------------- //
+
+Detective Plait sat in his car about half a block from Mashers. He was parked in a dark spot, so his car was not lit up under a street light. On the passenger seat was the remains of a Subway sandwich and a bottle of Coke. He picked up his binoculars and swept them over Mashers. Everything looked normal. He noted so in a notebook and put down the heavy black insulated 10x50 Steiner Marines.
+
+
+
+## Chapter 16
+
+The others got up from their chairs, a little bit less successfully than Steve. Dancia took a step back and scooted her butt into the chair until he slid away behind her. Joshua helped steady her. Tripp waved his arms around like he was going to fall and then stopped himself. His avatar went from big eyes to slits as he regained his cool.
+
+"There's a flashing light on the desk controls," Joshua noticed. He reached out and tapped it and a hologram of a man appeared, spinning slowly. "Captain's log, the Engineering reports the main hyperdrive has been deactivated. They are trying to bring it back on line, but it's been an hour and we don't have anymore time to wait. I need all hands on deck to figure out what has happened or we're all gonna be a lot thinner."
+
+Tripp laughed, "Star Wars lines, I love it!"
+
+
+
 
 
 
