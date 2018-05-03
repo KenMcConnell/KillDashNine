@@ -1915,7 +1915,7 @@ Nate seemed unimpressed, but then he wasn't a nerd and didn't understand any of 
 
 Melina stuck her hand out awkwardly and said, "Hi, I'm Melina. Friend of Dancia's. Can I get one of those cardboard doohickeys, too?"
 
-Jo looked at her strangely for a second, not sure if Melina was completely basic or not. The girl seemed really into her though and she found that a bit disarming. "Sure, hun. You a gamer?"
+Jo looked at her strangely for a second, not sure if Melina was completely basic or not. The girl seemed really into her though and she found that a bit disarming. She shook her hand politely and said, "Sure. You a gamer?"
 
 Melina cleared her throat. "No, actually. I'm an artist. I've seen you around town. I hope you don't mind, but I think I've even drawn you a few times."
 
@@ -1927,7 +1927,7 @@ Melina could tell she was probably weirding her out so she held up her iPhone an
 
 Melina shrugged as she took the headset form Jo. "Helps to have an enchanting subject."
 
-Jo smiled and looked across the room at Dancia who looked as if she had released a shark into a tank of minnows. Dancia turned away, talking to Joshua and Jo handed Melina her headset. "Here you go, just slide your phone into there when we're ready to go."
+Jo smiled and looked across the room at Dancia who looked as if she had released a shark into a tank of minnows. Dancia turned away, talking to Joshua and Jo handed Melina back her headset. "Here you go, just slide your phone into there when we're ready to go."
 
 Melina took the device and thanked Jo as she moved away, holding her look until Jo turned to face the table. "Okay folks. I need you to go to this url and download the client app to play. If you have an iPhone, chose the Apple logo, if you have Android, click on the green robot.  Jayzero.org"
 
@@ -1935,7 +1935,7 @@ Melina took the device and thanked Jo as she moved away, holding her look until 
 
 Jo was quick to respond, "Then you can't play."
 
-Nate acted like she had shot him and fell back dead in his chair. Everyone laughed as they downloaded the app and installed it on their phones. Jo walked around the table and made sure everyone found the link okay. Trip claimed he couldn't find the link, causing Jo to come lean over his shoulder affording him a clear shot of her boobs from her loose fitting top. He wasn't so dumb and winked over at Joshua after catching a peek. Joshua rolled his eyes, knowing he was checking out his own sister. He had to talk to Tripp soon, to keep him off of her.
+Nate acted like she had shot him and fell back dead in his chair. Everyone laughed as they downloaded the app and installed it on their phones. Jo walked around the table and made sure everyone found the link okay. Trip claimed he couldn't find the link, causing Jo to come lean over his shoulder affording him a clear shot of her boobs from her loose fitting top. He wasn't so dumb and winked over at Joshua after catching a peek. Joshua rolled his eyes, knowing his friend was checking out his own sister. He had to talk to Tripp soon, to keep him off of her.
 
 Joshua left his seat and his phone on the table and pulled Tripp away as Jo passed on to the next helpless victim, this time Melina. Joshua pulled Tripp back into the main room out of earshot from the table. Tripp shook him off and straightened his shirt. "What gives, man. I had a straight view of heaven back there."
 
@@ -1945,12 +1945,51 @@ Joshua shook his head in disgust causing Tripp to look at him funny. "Don't man.
 
 "She's not into guys," Joshua lied. It was the only thing that he could say that would cause Tripp to back off. Other than telling him the truth.
 
-Tripp looked at him funny then looked back at Jo who was doing the same lean over with Melina who was taking in the view herself and smiling like a kid in a candy shop. "Awe fuck man. You're serious."
+Tripp looked at him funny then looked back at Jo who was doing the same lean over with Melina who was taking in the view herself and smiling like a kid in a candy shop. "Awe fuck, man. You're serious."
 
 Joshua nodded as he patted his friend softly on his shoulder as they walked back to the group.
 
 Jo moved back to her phone and then proceeded to show the group how to activate the app and then slide their phones into the cardboard holders. This process didn't take long and after a few simple questions, they all were plugged in and ready to experience the VR environment.
 
+Joshua sat down beside Dancia and jacked into the VR environment. It was much like it had been at Jo's home. He was sitting at the same round table that existed in Mashers. In fact, they were all in the digitalized version of Mashers. Joshua had helped Jo set up and turn on all the posts around the room and Nate helped her set a few up stairs. A few of the others had witnessed what they were doing, but most of the players had no idea how the room they were sitting in was being reproduced inside the VR game. 
+
+"Hey, we're in Mashers!" Chris exclaimed with a childish awe that only he could pull off.
+
+"That's different," Steve commented with his usual irony.
+
+Jo stood up. Her avatar was dressed the same as she was in real life and her face even vaguely looked like herself. "Everyone please stay seated for a few minutes until you get used to the lag. Okay, hold out your hands in front of you and pick up one of the pens or pencils in front of you."
+
+Joshua hadn't even noticed that Jo put out the writing implements. He reached out an picked up the yellow #2 pencil with his right hand and brought it closer to his face. It was a Ticonderoga, the _World's Best Pencil_, or so it read along the barrel. He ran his thumb along the rubber eraser and watched his virtual thumb do the same. Freaking weird. And freaking cool. 
+
+"Okay, pick it up, manipulate it and study it. As you can see, what you see in the VR screen is what you are feeling in real life. I haven't worked out all the technical words to explain what all this means, so you'll have to put up with my layman's explanation. Objects in the room are scanned by optical and infrared posts situated all around the room. So any object that you set out in front of a post, will be reproduced by the program as best it can."
+
+"That's pretty cool, Jo. It's like a real-time virtual environment," Tripp said.
+
+"Thanks. Someone pull out their wallet and hold it up above the table."
+
+Steve pulled out his carbon fiber wallet capable of blocking RFI signals. It was reproduced fairly well as he held it up and turned it around. "Impressive," he grudgingly admitted.
+
+"That's worth fifty respect points, girl. Nothing impresses Steve much," Dancia encouraged.
+
+Melina raised her hand and everyone looked at her for a moment as Jo pointed to her. "Go ahead."
+
+"Have you ever tried to draw a picture using the headset?"
+
+Jo tilted her head and then slowly shook it. "No. why don't you give it a shot. The lag should be similar to early tablets."
+
+Melina nodded and started doodling on a piece of paper that Dancia had dug out of her purse. It was an old receipt from lunch. Melina's pencil moved around on the paper, fast then slow then fast again as her eyes and hand got used to the lag. She smiled as she finished and held up the drawing.  It was a pretty good rendering of Jo standing at the table wearing her headset, her hand raised with a pencil in it. 
+
+Everyone clapped at the parlor game and Melina took a bow from her waist. 
+
+"Okay, that was cool. Who's ready for more?"
+
+Everyone groaned and a Nate hooted. 
+
+Jo reached out before her and started tapping buttons that magically appeared before her like in the movies. Joshua smiled under his headset. She was doing things exactly like he would. Their environment changed after a flicker and now they were all aboard some kind of starship. Not the sleek, comfortable kind of ships from Star Trek, but a dirty, grungy looking ship straight out of Alien. 
+
+This drew excited cheers from just about everyone. It was like they were in a real world version of Halo. The table looked like it was from Firefly, wooden and beat to hell with a few computer terminals in the center. Joshua was again surprised at how freaking awesome the environment was. This could make game playing fun again for everyone.
+
+"We are on the _Shooting Star_, an old freighter heading for a mining colony light years away from the inhabited sectors of the galaxy. "
 
 
 
