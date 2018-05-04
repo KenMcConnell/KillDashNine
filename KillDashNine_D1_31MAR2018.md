@@ -2034,7 +2034,10 @@ _Easiest job of the night_, she thought as she made her way back to her cruiser.
 
 // ----------------------- //
 
-Detective Plait sat in his car about half a block from Mashers. He was parked in a dark spot, so his car was not lit up under a street light. On the passenger seat was the remains of a Subway sandwich and a bottle of Coke. He picked up his binoculars and swept them over Mashers. Everything looked normal. He noted so in a notebook and put down the heavy black insulated 10x50 Steiner Marines.
+Detective Plait sat in his car about half a block from Mashers. He was parked in a dark spot, so his car was not lit up under a street light. On the passenger seat was the remains of a Subway sandwich and a bottle of Diet Coke. He picked up his binoculars and swept them over Mashers. Everything looked normal. He noted that in a notebook and put down the heavily insulated 10x50 Steiner Marines.
+
+His police radio squawked 
+
 
 
 
