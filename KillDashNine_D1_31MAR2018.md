@@ -2004,13 +2004,12 @@ Steve stood up and backed out of his chair. He managed to do it without wavering
 
 ## Chapter 15
 
-(Plait sends a beat cop to the bar to verify that Pete is there. Then he heads over to Mashers with Sergeant McReed each on a street that can see the arcade.)
 
-Trooper Davis parked her cruiser across the street from the Neurolux nightclub and surveyed the scene. People were filing in, laughing and smiling as the base sounds reverberated out into the street. She didn't like jazz and didn't have any idea what they were playing. She sighed and secured her vehicle before crossing the street. 
+Trooper Davis parked her cruiser across the street from the Neurolux nightclub and surveyed the scene. People were filing in, laughing and smiling as bass sounds reverberated out into the street. She didn't like jazz and didn't have any idea what they were playing. She sighed and secured her vehicle before crossing the street. 
 
 "I'd like to speak to the manager please," she told the brawny doorman. He nodded with a smile and motioned to someone inside the club. Davis smiled politely to the folks showing their ID's to the doorman. She felt a little awkward standing there watching him do his job, as if he were somehow not doing it right. She stepped back and pretended to scan the streets for malfeasance or something.
 
-"Officer, I'm the manager. Brian Sanders."
+"Officer, I'm the manager, Brian Sanders."
 
 She turned to see the man dressed in a pressed shirt and tie with pleated pants. His hair was slicked back and short, almost like he had stepped out of a forties night club.  "There's no problem, sir. I was just told to verify that Pete Kasinovich was playing here tonight in the band."
 
@@ -2022,13 +2021,13 @@ Sanders looked around for a moment as if it were a huge incontinence. Trooper Da
 
 "Can you come in the back way? I don't want to make a scene inside. You can see him play from back stage."
 
-Davis nodded. "That would be fine."
+Davis nodded. "That'll work."
 
 "I'll meet you out back, officer," he said, pointing to her right.
 
 Sanders went back inside and Davis tipped her hat to the doorman and started around the side of the club. She called in to dispatch what she was doing, just to be safe. The back alley was well lit and only a few cars were parked nearby. One of them was a black vette that she recognized as being Pete's car. The plates matched what she was told. 
 
-The metal door popped open and Sanders let her enter. The music was much louder inside as he guided her to the side of the stage. She looked out into the red bathed stage and saw Pete Kasinovich playing his saxophone. He was dressed in a black suit with a gray, short brimmed fedora. Sanders looked back at her and Trooper Davis gave him a thumbs up. She was back in the alley not a minute later.
+The old metal door popped open and Sanders let her enter. The music was much louder inside as he guided her to the side of the stage. She looked out into the red bathed stage and saw Pete Kasinovich playing his saxophone. He was dressed in a black suit with a gray, short brimmed fedora. Sanders looked back at her and Trooper Davis gave him a thumbs up. She was back in the alley not a minute later.
 
 _Easiest job of the night_, she thought as she made her way back to her cruiser. 
 
@@ -2036,20 +2035,38 @@ _Easiest job of the night_, she thought as she made her way back to her cruiser.
 
 Detective Plait sat in his car about half a block from Mashers. He was parked in a dark spot, so his car was not lit up under a street light. On the passenger seat was the remains of a Subway sandwich and a bottle of Diet Coke. He picked up his binoculars and swept them over Mashers. Everything looked normal. He noted that in a notebook and put down the heavily insulated 10x50 Steiner Marines.
 
-His police radio squawked 
+His police radio squawked and he turned it down a notch before answering the call. It was Trooper Davis informing him that she had eyes on Pete Kasinovich at the Neturolux night club. He told her to swing by every thirty to verify the black Corvette was still in the back. It was not a guarantee that he was still in the club, but since he was not a primary suspect, it was good enough for Plait.
 
+Plait picked up the Steiners again and scanned the porch and then the back side of Mashers. All was quiet. It was going to be a long night. He couldn't leave the car running without causing concern from well-meaning North Enders concerned for the environment, not to mention it was a dead giveaway that he was there. So he had the windows rolled down and his head was on a swivel, looking for pedestrians. Boise was not a very violent city and so far had been largely immune from cop killing wackos. But you couldn't be too careful, even if you were in an unmarked car and not in uniform.
 
+Sgt McReed was one street over and down almost a block. She _was_ in uniform and in her cruiser. He knew she was looking around all the time and he didn't envy her position. He'd have gotten another detective to help on his stake out but Norm was on vacation at Disneyland with his family. _Scrub_. Plait switched channels to simplex and called her on his radio. She answered quick enough to convince him she was awake and alert. "Go, sir."
+
+"Keep your guard up, Sergeant. I don't expect any trouble until later. Even then, it might be nothing."
+
+"I understand, sir."
+
+"I'll check in every thirty. Plait, out."
+
+Plait picked up the binoculars again and scanned the house. Nothing. He looked at his watch, an old Elgin manual wound model that had belonged to his father. It survived a thirty year career as a beat cop's watch and was handed down to him five years before his father passed away. The metal was tarnished and the crystal was scratched up, but he loved the damn thing. Something about watching that seconds hand sweep smoothly along its way around the dial that never ceased to please him. Simple. Steady. Timeless. Also, it reminded him of his dad. Which was probably the real reason he still used it instead of some new fangled quartz job the size of Kansas. 
+
+Plait turned his head around at the sound of someone approaching. It was just a kid on a bike. His first thought was why the hell was a kid out this late at night until he realized it was only ten and still bright enough to see without streetlights. The kid rode by staring at him like he was a stranger. Plait returned his stare just to discourage the kid from stopping to chat with him. He peddled past without saying a word and Plait watched him cross the empty street and head down away from Mashers.
+
+The neighborhood returned to being a quiet as a graveyard. 
 
 
 ## Chapter 16
 
-The others got up from their chairs, a little bit less successfully than Steve. Dancia took a step back and scooted her butt into the chair until he slid away behind her. Joshua helped steady her. Tripp waved his arms around like he was going to fall and then stopped himself. His avatar went from big eyes to slits as he regained his cool.
+The others got up from their chairs with their phones over their eyes. Most were a little less successfull at it than Steve. Dancia took a step back and scooted her butt into the chair until he slid away behind her. Joshua helped steady her. Tripp waved his arms around like he was going to fall and then stopped himself. His avatar went from big eyes to slits as he regained his cool.
 
-"There's a flashing light on the desk controls," Joshua noticed. He reached out and tapped it and a hologram of a man appeared, spinning slowly. "Captain's log, the Engineering reports the main hyperdrive has been deactivated. They are trying to bring it back on line, but it's been an hour and we don't have anymore time to wait. I need all hands on deck to figure out what has happened or we're all gonna be a lot thinner."
+"There's a flashing light on the desk controls," Joshua noticed. He reached out and tapped it and a hologram of a man appeared, spinning slowly. "Captain's log, Engineering reports the main hyperdrive has been deactivated. They are trying to bring it back on line, but it's been an hour and we don't have anymore time to wait. I need all hands on deck to figure out what has happened or we're all gonna be a lot thinner."
 
 Tripp laughed, "Star Wars lines, I love it!"
 
-Testing git script, again and again.
+
+
+
+
+
 
 
 
