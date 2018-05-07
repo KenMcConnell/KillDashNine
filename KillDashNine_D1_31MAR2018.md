@@ -2062,6 +2062,66 @@ The others got up from their chairs with their phones over their eyes. Most were
 
 Tripp laughed, "Star Wars lines, I love it!"
 
+Jo took a slight bow and her avatar did the same. "I didn't have much time to improvise this adventure, so some objects in the game will not exactly look like they do in real life. My the best gamer, win."
+
+Joshua and Tripp looked for some time at the gaming cubes where they knew computer keyboards and screens were located. In the game world these were instrument clusters on the starship. Tripp sat down at one and started randomly pressing keys. Nothing significant seemed to happen, but he kept at it for a while, with Joshua doing the same at the next cube over. Nothing happened for him either.
+
+Dancia and Melina hooked up and started walking around the main floor. The kitchen area was another collection of instruments and pipes that could have been engine stuff for all they knew. They picked up various kitchen appliances that looked like mechanical devices attached to the starship. 
+
+"This is pretty cool. I mean, how long did it take you to create this level and all these skins?"
+
+"That part was easier than hooking them into the game engine," Jo replied, standing back away from the area and slowly turning around to see what everyone else was doing. She was watching them all equally, something Dancia picked up on but kept to herself. She was like a Dungeon Master in Dungeons and Dragons, guiding the adventure and providing responses to what each player did.
+
+Steve and Nate were walking around the room beside each other, but neither one had fully committed to helping the other. Both were pretty much loners when it came to gaming. Chris meanwhile, seemed to be fascinated by the look and the interaction he had with the imaginary ship. He sat down in the big easy chair that Nate often used to read in and looked around. The armrests had buttons on them and the seat in general looked like the Captain's chair. He pushed a green button and it glowed. "Warning, venting will proceed in fifteen seconds," Said a computerized female voice that sounded something like the main computer in Star Trek. The one voiced by Roddenberry's wife in the TV series. Teddy noticed it right off.
+
+"She sounds like Nurse Chapel, that's pretty cool."
+
+"Hey, who's venting?" Steve asked. He had stopped at a closet door in the back of the room.
+
+"Sorry, I was just punching buttons on this chair," Chris said.
+
+Steve tapped a button in the location of the door handle. Nothing happened but a light flashed that said turn handle. He wrapped his pudgy fingers around the real world door knob and opened the closet. Inside, the virtual ship looked like a bunch of burning and fused wires. "Yo, bitches. I found the damaged engine."
+
+Nate came over and peered into the closet. He knew there was just a mop and bucket in there and a vacuum cleaner. "Fascinating. The broom handle looks like a pipe. Maybe we should mop the floors and that will fix the engine."
+
+Steve's avatar gave him a head shake as he closed the closet door.
+
+"You now have forty-five minutes to repair the hyper drive, before the ship gets sucked into the black hole," Jo said.
+
+Chris clicked the green button again. "Venting closed."
+
+He sat up and started walking towards the staircase that led upstairs. "Hey guys, I'm going upstairs."
+
+"Wait for me, dude. I gotta make sure it looks presentable up there," Nate said, heading to the stairs.
+
+"Dude, we're not going to see your dirty laundry. It's all a game level skin," Dancia said with a laugh.
+
+Nate pushed past Chris and rushed up the stairs. Chris climbed up after him, knowing full well there was nothing out of place up there, he was just upstairs earlier with Nate clocking the WiFi speeds on his router. Nate recently upgraded to a business level plan and they wanted to test it before everyone came over. So far anyway, the VR game hadn't experienced any undue lag. That jarring slowdown that often killed gamers as they shot bad guys or moved across the game's battlefield. 
+
+Nate ducked into his bedroom and sat down at his PC. By the time Chris came by, Nate was coming out of the room holding something that looked like a Nerf rifle only painted black and chrome and looking totally bad ass. "Hey, is that your Nerf gun?" Nate's avatar nodded with a wicked smile on his face.
+
+Chris stepped back but Nate was not interested in shooting him. They heard someone coming up the stairs and knew by the heavy steps that it was Steve. Nate's avatar put a finger to his mouth. Chris smiled and backed out into the main room as Steve arrived out of breath.
+
+"Hey, welcome to level two of the ship. We haven't found anything amiss yet," Chris said.
+
+Steve scanned the apartment looking for clues. It just looked like another level of the imaginary starship. Nothing was smoking or flashing or out of order in any way. "Shit, I should have gone down to the basement." 
+
+"Nate's over in the laundry room. You see anything, dude?" Chris feigned.
+
+Steve followed Chris and was shot with a laser blast from Nate's Nerf gun. Steve's avatar wavered and then exploded in a puff of red dust. He was no longer in the game, but he still stood there looking at Nate and Chris. "You idiots!"
+
+"If you had found it, we'd be dead," Nate said, pulling up his goggles to look at Steve. The real Nerf gun had shot him in the belly with a soft round disc that was now on the carpet. Steve shook his head with a smirk. "Damn straight I would have. I'm heading down stairs and taking a Dew on the house. "
+
+Nate Watched Steve head back to the stairs. Then he slowly pulled his goggles back down. Steve disappeared as the game world replaced reality. Nate stood there for a moment, not moving. Chris patted his shoulder, snapping him out of his reverie.
+
+"Hey, let's go down and blast some more before he tells them what happened to him."
+
+Nate's avatar seemed dazed. He handed Chris the Nerf/laser gun. You can have some fun, I'm going back downstairs. I think you were on to something at the Captain's chair. Chris's avatar had the same childish smile he sported in real life. Chris racked the Nerf rifle and looked around for imaginary aliens before following Nate.
+
+Tripp and Joshua had busted into the storage bin and retrieved two single shot Nerf guns. They looked like deadly laser blasters which totally pumped them up as they pointed the pistols around the room. Tripp shot the wall and it produced a red beam that exploded the wall in animated sparks. Both of them started hooting with joy as Steve came around the corner and saw them standing there in real life with two Nerf guns. "Already found one upstairs. Nate killed me with it, I'm out."
+
+Steve went past the girls and grabbed a Mountain Dew from the fridge. Twisting the cap he took a long drink and sat down at the round table beside Jo. He opened his laptop and went to the game's URL. He was able to watch the game like a movie in which he was no longer a star.
+
 
 
 
